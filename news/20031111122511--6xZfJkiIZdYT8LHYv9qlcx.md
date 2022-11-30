@@ -1,0 +1,4 @@
+# Are Protein Delicacies responsible for student cognitive dysfunction?
+Published on 2003-11-11T12:25:11 at https://universe.eveonline.com/new-eden-news/are-protein-delicacies-responsible-for-student-cognitive-dysfunction
+
+Recent studies have indicated that there is a clear link between the consumption of Protein Delicacies and decreasing IQ. The studies were conducted as part of the investigation being made into the dismal results of last seminar’s test scores, as well as the increase in juvenile delinquency within the Federal school system. It is most certain that the moral outcry following this new piece of information will have lasting effects on the already strained relationship between the Federation and the State. Although Federal officials have not commented on the matter yet, it is strongly believed that they are willing to diligently pursue the matter with the Caldari State, both directly and through the agencies of CONCORD.

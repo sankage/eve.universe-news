@@ -1,0 +1,10 @@
+# Minmatar Diaspora Welcomes Gariushi Speech
+Published on 2008-05-14T16:52:59 at https://universe.eveonline.com/new-eden-news/minmatar-diaspora-welcomes-gariushi-speech
+
+Pator – Minmatar community leaders in the Republic have been expressing their wholehearted support for the speech urging calm made by Ishukone CEO Otro Gariushi, and have in turn urged calm and restraint on any Minmatar living and working in the Gallente Federation or the Caldari State.
+
+Killian Thakor, leader of the Minmatar Community Alliance, said, "It is essential that our people, here in the homelands, and in the Federation and State, behave with restraint and not become swept up in any rash movements that seek to attack one ethnicity or another. We of the MCA know what a welcoming environment the Federation has provided for many of our brothers and sisters. We also know of the opportunities that can be found in the Caldari State. Every Minmatar should heed the wise words of Otro Gariushi."
+
+Reports from Minmatar living in the Gallente Federation have been muted for fear of reprisals but it is known that some of the violence in the Federation spilled into areas where Minmatar and Caldari live in fairly close proximity. These have tended to be poorer areas where immigrants predominate. However, there have been sporadic tales of Minmatar rioting alongside Gallente as well as Minmatar choosing to shield Caldari in fear of their lives. The complexities of the situation in the multi-ethnic Gallente Federation are highlighted by such stories.
+
+Thakor described to us the palpable sense of relief that he has found when speaking to Minmatar community leaders in the Federation following the vigils for peace and, particularly, the impact of the Gariushi speech. "I have real hope that the worst is now over. We must trust that Gariushi and the ideals he represents will temper the passions and, in my opinion, misdirected energies of Tibus Heth. There is surely room for a balance here." Thakor indicated that the priority for Minmatar in the Federation now is to concentrate on relief for any Minmatar displaced by the violence and to work to support tolerance of all races.

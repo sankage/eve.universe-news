@@ -1,0 +1,8 @@
+# CEP Establishes Reform Guidance Board in Absence of Bravour
+Published on 2008-10-10T13:20:14 at https://universe.eveonline.com/new-eden-news/cep-establishes-reform-guidance-board-in-absence-of-bravour
+
+New Caldari - The Chief Executive Panel has announced the establishment of a Reform Guidance Board (RGB) to oversee the program of reforms initiated by the Provist Directorate under the aegis of COO Janus Bravour. Although Bravour has been the driving force behind the State reforms package to date, sources inform us he has been placed on indefinite sick leave. The CEP is understood to be concerned that without clear direction the reforms may falter or become counter-productive to the regeneration of the Caldari State's economy.
+
+Speaking on behalf of the CEP, Sukuuvestaa CEO Kuikiainen Onita said, "The regrettable indisposition of Director Bravour illustrates the danger of allowing wide-ranging change to be overseen by one man. The CEP, however, is prepared to remedy the situation, in the absence of any word from the Provist Directorate. We believe the reform program is at a critical juncture and requires careful guidance as it goes forward. To that end, the CEP has established a Reform Guidance Board composed of representatives from all the megacorporations who are so invested in this great effort and, of course, representation from the Provist Directorate."
+
+Provist Director Suvasemi Aikinen, standing in for Director Bravour, was unavailable for comment but was said to be studying the CEP proposals with great interest. It is understood that the RGB will convene at the beginning of the next working week with examination of the Job Choices scheme and Self Education Initiative believed to be high on the agenda.

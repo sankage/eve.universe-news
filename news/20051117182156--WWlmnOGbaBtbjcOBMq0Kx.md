@@ -1,0 +1,16 @@
+# Mordu's Legion Clashes In Syndicate
+Published on 2005-11-17T18:21:56 at https://universe.eveonline.com/new-eden-news/mordus-legion-clashes-in-syndicate
+
+Yesterday the Syndicate region and the Orvolle star system witnessed a bloodbath as Mordu's Legion engaged multiple groups of pilots in the PF-346 system. 
+
+The Legion, under the command of Lt. Amlerik Raun, gathered together a fleet with their allies, Razor alliance. Their mission was to patrol the Syndicate region of space and search for any NORAD or Imperium pilots they found. Setting forth at 1900 hours, their first and second waypoints, in the 3KNK-A and 3MOG-V systems, yielded no hostiles. Recon reports indicated, however, that a large fleet from the NORAD alliance was massing in the Orvolle system. 
+
+Lt. Raun made the decision, along with Razor command, to return back to Orvolle. It was in PF-346, the uncontrollable system next door to Orvolle, that they met their opposition. 
+
+A fleet of Mercenary Coalition ships, invited to patrol with Mordu's Legion, were waiting at the Orvolle stargate. Some of the Legionnaires, assuming they were there to help, jumped into Orvolle where they proceeded to engage NORAD ships. The rest found themselves on the wrong side of the Mercenary Coalition's guns. Shortly after this, the BoB fleet engaged the Legion ships as well. This resulted in the loss of several Mordu Caldari Navy Ravens. 
+
+“We are not the Legion's puppets and will not do their bidding,” Eyeshadow, a member of Sharks With Frickin' Laser Beams, said. “We are loyal to our friends, but we expected more from Mordus and their lack of any contact just proves what they think of us.” When asked if the Mercenary Coalition was trying to supplant Mordu's Legion in the mercenary business, Eyeshadow replied, “We believe we are already the top mercenary force in the universe. We have proven we can fulfil any task and take on the biggest odds.” Echoing Eyeshadow's dismissal of the Legion was Shrike, a leading figure in the BoB alliance. “No one is allowed to enter into our regions looking for targets,” Shrike explained, as she pursued the Legion through Syndicate, “We hope these guys brought some guts with their fancy ships.” After the initial patrol was destroyed or left PF-346, a fast-response team of Legion pilots was dispatched to PF-346, though they quickly left. 
+
+Is this the end of Legion patrols in the Syndicate? Preliminary reports suggest the answer to this is a negative. Raun withdrew some of his ships to the Federation Navy Plant orbiting Orvolle I, where they docked for repairs. Raun explained that his move to Orvolle was not to evade the BoB or Mercenary Coalition fleets. “We were after NORAD,” he explained over drinks at the lounge. “They have proven themselves to be hostile and we want to clear the area of hostiles. Even though we've withdrawn from our ORE contract, we still have a vested interest in the region.” When asked about the actions of the Mercenary Coalition and BoB, he declined to comment. 
+
+However, it seems like yesterday's fire fight had a silver lining, as Shivaja of NORAD talked to Lt. Raun and discussed the possibility of a ceasefire. According to Lt. Raun, their only demand is that NORAD issues an official apology for their actions during the mordu pullback. It seems likely that such an apology will be forthcoming.

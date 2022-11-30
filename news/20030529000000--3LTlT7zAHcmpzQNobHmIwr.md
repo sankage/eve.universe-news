@@ -1,0 +1,4 @@
+# Used ship salesmen
+Published on 2003-05-29T00:00:00 at https://universe.eveonline.com/new-eden-news/used-ship-salesmen
+
+The SCC has become increasingly agitated with the influx of deceitful merchants dealing in wares which do not meet up to the expected standards. In addition the blatant bundling of various lousy salesmen, who sold ships to other people yet forgot to strip them of the extra equipment, further enlightened the SCC of how bad the situation had become. As a result the ruling body of the SCC has acted hastily to rectify the situation, and decreed that all ships and modules must henceforth be sold in a package and given a stamp of approval by local officials. No assembled ships can be sold on the market, they have to be in mint condition and repackaged. Breaking this law will result in serious repercussions. Turn to a friendly station to repair and repackage a ship and modules before selling.

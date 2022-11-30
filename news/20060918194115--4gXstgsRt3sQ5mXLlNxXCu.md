@@ -1,0 +1,14 @@
+# Rescue Ships Finally Reach Disaster Planet Surface
+Published on 2006-09-18T19:41:15 at https://universe.eveonline.com/new-eden-news/rescue-ships-finally-reach-disaster-planet-surface
+
+Last Wednesday a convoy of rescue ships finally landed on the surface of the planet Reschard V, seven months after the planet was reduced to an uninhabitable wreck by an as yet unexplained disaster. 
+
+The convoy of rescue ships, under the aegis of The Servant Sisters, were finally able to land on the surface of the planet during the first lull in the planet-wide megastorms since the incident occurred. Despite the scale of the destruction - and the significant period of time which the entire surface of the planet has been incapable of supporting life and almost completely devoid of infrastructure - the search and rescue parties received quite a shock. 
+
+Amongst the ruins and caves dotting the landscape, the teams found and rescued well over 2000 survivors from the disaster. Suffering from malnutrition and disease, and with rumours of cannibalism filtering through the fleet, they were quickly evacuated to medical vessels in orbit, before being moved to an undisclosed location where their physical and mental states can be assessed and treated. Representatives from the Sisters quickly announced to the media that there was no evidence of cannibalism at any of the survivor sites, and that search and survey missions of the planet will continue until it is no longer safe to remain on the surface. 
+
+In related news, investigators from Mordu's Legion and CONCORD have confirmed that the disaster was not of natural origin. Releasing small sections of the compiled data to the public, the investigation team announced that scans of the system shortly before the event occurred indicated the presence of an Avatar-class vessel; an Amarr Empire designed Titan, in low orbit over the planet. This was further confirmed by scans conducted in the days after the event, which detected an energy signature on and around the planet consistent with the doomsday device known as 'Judgement'. According to experts this weapon, normally used to annihilate entire fleets, is quite capable of causing the level of destruction seen across the entire planet of Reschard V. 
+
+This was where the good news from the investigators ended, as according to all available data, the Avatar immediately jumped out of the system after the weapon had been fired. However, due to the simultaneous activation of over two dozen cynosural fields across the galaxy, they were unable to track the vessels course, and beyond that all contact with the vessel was lost. 
+
+Although the investigation team has not announced any cessation in their activities regarding this incident, the fact that even the ships identity cannot be determined from the small amount of existing data, suggests that the galaxies fears will not be alleviated any time soon.

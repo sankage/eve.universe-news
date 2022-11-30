@@ -1,0 +1,8 @@
+# Mercurion Red caught and eliminated.
+Published on 2005-04-28T13:14:51 at https://universe.eveonline.com/new-eden-news/mercurion-red-caught-and-eliminated
+
+Yesterday a large group of pilots were rallied by CONCORD to help in the capture of the terrorist Mercurion Red. The chase centered on the border between the regions Verge Vendor and Genesis, close to Yulai. Mercurion Red, a known Guristas terrorist was finally caught after two hours of intense chasing, in the Yulai system. The pilots Wuagwan, Hardcore Pawn and ragnaR lodbroK were amongst the people who brought her covert operations frigate down. Unfortunately another pilot who was unaware that Mercurion Red had to be captured alive opened fire on the pod which resulted in her swift death. Earlier, two other Guristas pilots were discovered assisting Mercurion Red in her escape. Both were swiftly destroyed by the fleet chasing her.   
+  
+Mercurion Red's corpse was retrieved and CONCORD has stated that half the bounty will be paid out for the effort of stopping the wanted terrorist flee Empire space, additional bounties will also be paid out to those responsible for the destruction of the Guristas support ships in the process. Mercurion Reds corpse will be examined to verify her identity. The nature of her crimes allowed a court ordered clone suspension to make sure that she did not ressurect. Scientists hope that intelligence about her operations can be extracted from the remains.   
+  
+During a press conference Commander Plavers thanked all pilots that assisted in the capture, "I would like to commend the pilots for their resourcefulness, fast adaptation and clever manœuvres that helped us stop another criminal from committing more acts of terrorism against the Empires".

@@ -1,0 +1,8 @@
+# Caldari Navy Report: Heth assumed alive
+Published on 2013-07-11T17:43:27 at https://universe.eveonline.com/new-eden-news/caldari-navy-report-heth-assumed-alive
+
+_Haatomo - _The [Caldari Navy](http://wiki.eveonline.com/en/wiki/Caldari Navy) has completed its full sweep of the [Caldari Constructions Warehouse](http://wiki.eveonline.com/en/wiki/Caldari Constructions) station in Haatomo and has found no indication [Tibus Heth](http://wiki.eveonline.com/en/wiki/Tibus Heth) is hiding onboard. Security footage recovered from cameras show Heth boarding one of the ships that was confirmed to have escaped the blockade on June 18th.
+
+However, it appears that Heth was injured during the storming of the station by Caldari Navy and corporate security forces, as blood matching his DNA has been found at the docking ring. Officials are uncertain as to the extent of Heth's injuries, but believe it likely he has survived them.
+
+The last known location of the escaped ships was Kedama, leading officials to believe Heth is hiding somewhere in the largely unpopulated and isolated communities of [Black Rise](http://wiki.eveonline.com/en/wiki/Black Rise). A large scale manhunt has already begun, though officials say Heth may potentially attempt to alter his appearance and be given shelter by supporters throughout the State. Despite his plummeting in popularity over the past several months due to a number of draconian measures that curbed both corporate and worker rights, as well as several other actions that angered the populace, a small minority of Caldari are believed to still be fervent in their support of the disgraced former State Executor.

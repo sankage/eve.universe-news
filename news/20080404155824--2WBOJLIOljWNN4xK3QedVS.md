@@ -1,0 +1,18 @@
+# Prime Minister Calm as Minmatar Republic Reacts to Karsoth Affair
+Published on 2008-04-04T15:58:24 at https://universe.eveonline.com/new-eden-news/prime-minister-calm-as-minmatar-republic-reacts-to-karsoth-affair
+
+Pator – Prime Minister Karin Midular has called for a "level-headed appraisal of events" following the attempted assassination of the Amarrian Court Chamberlain, Dochuta Karsoth. "We should take note of the internal affairs of the Amarr Empire, it is only sensible to do so, but not over-react. Whoever governs the Amarr, we still must deal with them and maintain lines of dialogue. My government is committed to maintaining the peace, using any and all means."
+
+Commenting on the Prime Minister's remarks, Malaetu Shakor, Speaker of the Republic Parliament, said, "I trust that Karin Midular, while insisting that talk will always be one of her 'means', also recognises that talk is empty without the will to back it up. The mouth achieves little without the fist, as one of my Elders used to say."
+
+Others in the Minmatar Republic have expressed varying degrees of concern at what the attempt and Karsoth's subsequent speech may mean for the Republic and Minmatar in general.
+
+"Uppermost in my thoughts is how the increased use of internal force and the general clampdown that we see will affect our brethren held within the Empire," said Jomain Ariakor, an official of the Republic Justice Department. "There is reason to think that it will prove even more difficult to liberate any of our brothers and sisters in servitude and that the Empire will close its mind to even the limited diplomacy we have had on the issue. The Justice Department will still, of course, continue its mandated activities."
+
+"My personal view is that the general security situation is very fragile at the moment," commented Tobias Efrit, a Krusual parliamentarian known to have links to the Republic Security Services. "Amarrian willingness to deploy naval assets has clearly increased with the Bleak Lands task force and now this mobilisation in Sakht system. Do I think those patrols are solely about the assassination? Frankly, no. It is clear the Republic will have to maintain its necessary vigilance and our security forces carefully monitor the situation in the Empire."
+
+Wyvr Fehrl, the noted Brutor philosopher and political commentator, went further still, "The strength of our people resides in the strength of the tribes. We know that the Amarrians and their Ammatar lapdogs have no respect for the Republic but they know the resolve with which we will fight them should they attack us. We must turn that knowledge into fear. They will never fear a hesitant government but they can be made to fear the might of the tribes. Our ancient right to bear arms as tribal warriors must be upheld and extended. The events in the Amarr Empire give this new urgency. We know that when they stop fighting amongst themselves, they will come for us."
+
+Few, if any, have expressed regret that the attempt was made and the executions of the alleged perpetrators have elicited only remarks to the effect that Amarrian justice is as "brutal as ever". There is considerable scepticism that the Amarrian 'Reformist' movement is anything other than one faction contending for power against others in an Empire that shows no signs of abandoning the practice of slavery. 
+
+Overall, many in the Republic are clearly concerned that the repercussions of the affair could destabilise the fragile diplomatic environment, but there is little surprise here that the question of the Imperial Succession has led to what appears to many a violent struggle for power.

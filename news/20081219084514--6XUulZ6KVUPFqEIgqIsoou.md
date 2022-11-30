@@ -1,0 +1,10 @@
+# Tribal Liberation Force to Enter Freedom Fighters into Alliance Tournament
+Published on 2008-12-19T08:45:14 at https://universe.eveonline.com/new-eden-news/tribal-liberation-force-to-enter-freedom-fighters-into-alliance-tournament
+
+Ebolfer - General Gar Orga announced today that the Tribal Liberation Force (TLF) would be entering a team of its most dedicated pilots into the forthcoming 6th Alliance Tournament. General Orga outlined the arrangements, making clear that the organization of the team would rest primarily on the shoulders of the top fighters within the TLF.  
+  
+"After consultation with the Tribal Chiefs and authorization from our Commander-in-Chief, the noble Sanmatar Shakor, the Supreme Command of the Tribal Liberation Force has decided that three of our pilots will be responsible for selecting a team captain," announced General Orga. "These three pilots will be those who most distinguish themselves in the ongoing war on our borders during the tournament sign-up period. The team captain they select will then be responsible for all matters pertaining to the organization and conduct of the Tribal Liberation Force team in the tournament."  
+  
+Questioned as to the motivation of the TLF entering a team in the Alliance Tournament, General Orga replied, "The traditions of our people include many trials and ritual combats. It honors those traditions, and emphasizes the confidence we feel in our brave fighters of the Tribal Liberation Force, to enter a team in the tournament. The fighters of the Liberation Force are capsuleers who have chosen to honor the cause of freedom and the traditions of the Minmatar people. We chose to honor them in our turn by making this opportunity to fight for the honor and glory available. We are certain that our fighters will meet this challenge with all the skill and dedication they have shown in the fight against those who would enslave us."
+
+Militia pilots wishing to know more about the selection process should direct their attention [here](http://myeve.eve-online.com/ingameboard.asp?a=topic&threadID=938724).

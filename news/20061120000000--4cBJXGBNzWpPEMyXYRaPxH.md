@@ -1,0 +1,16 @@
+# Eye for an Eye
+Published on 2006-11-20T00:00:00 at https://universe.eveonline.com/new-eden-news/eye-for-an-eye
+
+![Eye for an Eye](https://web.ccpgamescdn.com/communityassets/img/chronicles/chronicleImage/eyeforaneye.jpg)
+
+---
+
+I think I found it easier to hate them. I had to feel something; being neutral about it implied that I did not care enough to form an opinion. Without that, there would be no reason or drive to continue. The feeling of hate allowed me to be here, to do what needed to be done without pause or contrary thought. I did not pity them, though, for I had run short of pity long ago; so much so that I had none to give, even for those who needed it.
+
+I watched them jump into the system, a deep space system well beyond the effective jurisdiction of the Directive Enforcement Department, even beyond many of the usual pirate groups' raiding territories. I sat, silently ticking off the reasons for my hate of them, as each one gathered into formation and prepared to warp past me. This one had spoken too loudly against my proposals in the boardroom, that one had tried to rally support against me amongst the investors. More gate activity flashed on my screen; this one had attached himself to the coat tails of my eventual successor, another had made a feeble attempt at spying on me only to ruin it by approaching too closely... on it went down the line, until the last of the thirteen aligned his ship with the destination and the fleet began to cycle their warp drives.
+
+This one, was different... this one had been a friend of sorts, someone I had known for many years. Despite the years of friendship, countless hours spent working together on vital projects, days spent visiting his family, keeping his back at my own expense in times of crisis and despair, this one had turned against me, betrayed me to my enemies. Could I really hate him? This was not another face I barely knew, another face from the board room or the factory floor, or an enemy who had always been a staunch advocate of the other side. This was a person I had spent time with, both good and bad. I knew the names of his children, who he’d had an affair with in the office last year, where he had gone to school and what his favourite lunchtime meal was, amongst dozens of other trivial memories.
+
+I knew that it needed to be done, that all of them had wronged me, had directly contributed to my loss of power, my loss of prestige, and the loss of everything that made me who I was; anything beyond that was simply extraneous information, not pertinent to the crime for which they were being punished. I knew I could hate every single one of them, that they all had to die for their sins to be absolved. I followed them in warp, unseen and unheard, to a still-rich asteroid belt not far from the fourth moon of the system’s eighteenth planet, where their group of exhumers and cargo vessels began the tedious work of stripping the asteroids whilst the combat patrol established its barrier. Gliding effortlessly between a pair of cruisers, I sat at point blank range from my old friend and sent the all clear message to my new friends. I checked my weapons’ and electronic warfare systems’ status as the screeching sound of a dozen decloaking recon cruisers filled the system. Only 40 rounds per gun: not enough, I thought.
+
+I hate reloading in the middle.

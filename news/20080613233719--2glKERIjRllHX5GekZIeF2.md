@@ -1,0 +1,12 @@
+# Tribal Victory Soured by Fleet Loss
+Published on 2008-06-13T23:37:19 at https://universe.eveonline.com/new-eden-news/tribal-victory-soured-by-fleet-loss
+
+Today saw many great victories for the brave pilots of the Tribal Liberation Force. They secured numerous tactical position within the Amarr Empire with little to no resistance put forth by the 24th Imperial Crusade. 
+
+After a long day of fighting, a fleet composed of only ships from the Tribal Liberation Force, began securing hostile positions in the Bleak Lands region of the Amarr Empire. The fighting has mainly been focused on the systems of Huola, Kourmonen and Kamela, with Tribal Liberation Forces taking several key installations from the Amarrians. In an effort to occupied these key systems for the Minmatar Republic. 
+
+Early gains were made with a fleet lead by General Beanflicker and then followed up with some superb work by Argyle Jones later on in the day. While travelling around with the fleet and observing their movements, several key Amarrian installations were hit and successfully taken over by Tribal Liberation Forces. This was a process that was kept up all day with no resistance being offered at all by the 24th Imperial Crusade and only token ships being offered in the defence of these installations by the Amarr Navy. All these forces were swiftly dispatched by Tribal Liberation Forces with no losses to accounted for.
+
+However, the 24th Imperial Crusade called in their allies, The State Protectorate. Using them as what can only be described as cannon fodder, set about to try to take on the Tribal Liberation fleet. With the combined fleets, mainly consisting of State Protectorate pilots with a few token 24th Imperial Crusade helpers, they secured one of the entry gates into Huola. This new force outnumbered the Tribal Liberation Forces and initially refused to engage, but in a valiant effort our militia fleet warped into their position to secure the gate they were holding, thereby allowing free passage for our allies.. It is with a sad heart, I have to report that many Tribal Liberation Force pilots lost their lives today. However, their sacrifice was not in vain due to the many gains that they were able to make earlier in the day.
+
+Before the last engagement, Argyle Jones had this to say. ‘Our pilots are out there, fighting and dieing for your freedom. So rise up against the oppressors and start fighting for your people.’

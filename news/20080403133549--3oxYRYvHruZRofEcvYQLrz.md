@@ -1,0 +1,13 @@
+# Minmatar Disturbed At CONCORD’s Actions
+Published on 2008-04-03T13:35:49 at https://universe.eveonline.com/new-eden-news/minmatar-disturbed-at-concords-actions
+
+Pator – This afternoon a spokesman for the Republic Parliament closed the circle of statements regarding the [recently leaked report]( http://myeve.eve-online.com/news.asp?a=single&nid=1808&tid=4) from CONCORD’s Inner Circle. Having been debriefed by the Minmatar Republic’s representatives to the CONCORD Assembly, the Republic government has released what the spokesman began stating is a carefully considered response to the situation surrounding the Code Aria Inquiry expeditions, Republic jump gate security and the rogue drone infestations. 
+
+The statement from the Republic statement placed specific emphasis on the priorities of the Republic government towards their citizens.  
+“The safety and security of all citizens of the Minmatar Republic is of the highest priority to us, and has been a driving concern in our deliberations. Repeatedly, and without our knowledge, that security has been placed in jeopardy by the Inner Circle. We cannot overemphasize our distress and displeasure at their actions, from vital omissions from the original report on the [secured gate reactivations over one year ago]( http://myeve.eve-online.com/news.asp?a=single&nid=1329&tid=4&sid=1023012286) to the planned and executed expeditions into the infested regions without the required Assembly approval.” 
+
+The statement continued to raise concerns over the state of affairs inside CONCORD, being the only one released to address the issue of internal security.  
+“While instrumental in bringing these events to light, we consider this most recent leak of secured documents as one more piece of an alarming pattern. More relevant to this specific incident is the [past revelation of rogue drone infestations]( http://myeve.eve-online.com/news.asp?a=single&nid=602&tid=4&sid=1023058049) within the very borders of secured empire space, previously the substance of mere rumours, which was also known to CONCORD’s Inner Circle prior to the information being leaked.” 
+
+The statement continued, disclosing the Republic government’s aims to follow suit with the other empires by conducting an assessment of the security of their jump gate system. In closing the statement addressed the menace of the rogue drones.  
+“It should never be underestimated that these drones, when left unchecked, would pose a significant risk to the safety of all Minmatar Republic citizens. To that end, our own forces as well as licensed agents cooperating with capsuleers, will continue to work diligently to ensure that the rogue drones continue to be beaten back.”

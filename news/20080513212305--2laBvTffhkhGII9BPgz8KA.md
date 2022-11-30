@@ -1,0 +1,10 @@
+# Khanid corporations rally behind Gariushi
+Published on 2008-05-13T21:23:05 at https://universe.eveonline.com/new-eden-news/khanid-corporations-rally-behind-gariushi
+
+Parses – Representatives of several Khanid corporations have today shown a united front in applauding Ishukone Corporation CEO Otro Gariushi's recent address. The consensus at Khanid Trans-stellar Opportunities – a tradeshow that remains a regular calendar feature for many corporations in the Kingdom – seems to be that disruptions in the State, while not presenting a major threat to Khanid industry, are bad for business. 
+
+Speaking outside the main hall, Royal Amalgamated marketing manager Safia Rostrimy stated that "we do extensive business with the State and were saddened to see some of our Caldari cousins behaving little better than unenlightened Minmatar". Amalgamated, a subsidiary of Khanid Transport, has shown solid performance over the past couple of years, deriving much of its business from deals with other Empires, and its stock price, like those of most Khanid corporations, has remained steady in spite of recent events. 
+
+Lobbyist Madarun Tomaler, speaking on behalf of industry group "Opportunity In Action", echoed Rostrimy's position, explaining "Ishukone has always served as a role model for our corporations – Gariushi's benevolence and foresight has inspired many managers to ensure that their employees are properly valued and supported in the workplace, by monitoring working conditions carefully and more efficiently leveraging biological assets to lower workloads for employees". OiA has been using the event as an opportunity to promote its "Business Partners" programme, encouraging Khanid corporations to work with their Caldari counterparts as part of a concerted effort to help stabilize the State's volatile economy. 
+
+The office of the King has released a statement expressing regret at the recent losses of Caldari life and property, but decrying those who seek to meddle in the political affairs of sovereign entities. Further requests for comment have been denied.

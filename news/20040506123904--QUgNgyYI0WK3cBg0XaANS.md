@@ -1,0 +1,10 @@
+# Jovian tech malfunctions – Liaison’s visit postponed indefinitely
+Published on 2004-05-06T12:39:04 at https://universe.eveonline.com/new-eden-news/jovian-tech-malfunctions-liaisons-visit-postponed-indefinitely
+
+This just in: representatives of the Jove Directorate have been in contact with heads of state over the past hour, explaining what has become of their delegate, Misu Banya, who was to have arrived at New Caldari at 12:00 EVT today. Two of the four largest empires, Caldari and Amarr, have already issued press releases concerning the affair.   
+  
+Baniya, Extra-Racial Liaison for the Jove Directorate, was set to meet with several major heads of state and factional representatives over the course of only an hour, in order to commemorate the one-year anniversary of the Interstellar Services Division’s founding. What happened instead, according to Yangin Aortum, Head of Research for Jovian ship-building company Shapeset, was that the equipment Banya was to have used for the transportation (a “Meta-Molecular Transportation Device”) malfunctioned despite extensive testing, splitting the Jovian into tens of thousands of separate pieces, effectively scattering him throughout the known universe along with pieces of the Fullerene chamber he was encased in. Already several people have reported finding small slivers of flesh and bone lying around on the streets, in foot lockers, in hangars, and even in overcoat pockets.   
+  
+The Jove Directorate wished also to “express lament” for trying new technology in this public capacity before making absolutely sure no errors would present themselves. The Directorate is currently contemplating possible means of getting the pieces back, and considering the Jovians’ extreme propensity for loyalty to their prized operatives, speculations run rampant that eventual black market trafficking in Misu Baniya is a very real possibility.   
+  
+Asked by an Amarr liaison when the Meta-Molecular Transportation Device would be finalized and ready to be released upon the world, Aortum replied only with: “Soon.”

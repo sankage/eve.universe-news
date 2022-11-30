@@ -1,0 +1,17 @@
+# STAR: Support, Technology and Resources
+Published on 2004-06-18T00:00:00 at https://universe.eveonline.com/new-eden-news/star-support-technology-and-resources
+
+![STAR](https://web.ccpgamescdn.com/communityassets/img/chronicles/chronicleImage/star_potw.jpg#left)
+
+---
+I floated inside my capsule drowsily listening to the artificial hum of space. My STAR frigate, the ISD Banana was floating just outside the docking perimeter the University of Caille station in Bourynes, and I was bored.
+
+After a while I became aware of the small flashing light that signified a new pilot entering the system. "Hmm," I pondered to myself "could this be who I’m waiting for? Aha!" I grinned triumphantly as the pilot's file appeared on my visual. "Graduated this morning. Bingo!" I then ordered my ship's CONCORD issue scanner to lock the pilots capsule signal, and then with a flip of a mental switch... space folded... and my frigate was floating in the University Training Grounds next to the Velator Frigate of a bemused looking young pilot whose image had just appeared on my visual.
+
+"H..hi?" stammered the pilot, "what do you want? How did you do that?” I smiled at the image and vocalized my reply. "Hi there! I’m Captain Rhaegar of CONCORD's Interstellar Services Department. My division, Support, Technology and Resources, or STAR as we generally refer to it, is tasked with greeting pilots who have just received their Pilots License and helping them out if they have any problems. How are you finding solo flight so far?" The young pilot looked relieved. "I thought you might be a University official here to tell me I’d graduated by mistake," he grinned. "I'm doing alright, but the training you get for the license doesn't cover half of what's really out here..."
+
+And so went my morning. I would sit outside the various Universities, Academies and Schools and wait for new Pilots to appear, and then offer to help them find their feet. It had become clear some months earlier that the basic pilot training offered by the four empires was not really sufficient to cover the complexities of a pilot's every day life in New Eden, and so CONCORD had decided to put to use one of its divisions, STAR, which had previously been a kind of Citizen's Advice service. Equipped with state-of-the-art ships, which used a prototype jump engine they were able to travel the galaxy extremely quickly, so whenever a new player graduated, they could be there.
+
+During the afternoon I received an urgent transmission from STAR headquarters in the Polaris system. "We're getting reports of a huge jump gate malfunction in the Yulai system" reported a Lieutenant, "Looks like its gone out of synch, and none of the ships are completing their jumps!" I sighed. It seemed like every time we updated the jump gate software to be more efficient, more gates would malfunction, stranding the pilots in a kind of stasis. The only way to solve the problem, save completely re-starting the gate, was to go to each ship individually and re-program its navigation computer to be in synch with the gate. It could take hours. Thankfully as I arrived in Yulai so did four other members of the team, and we set to work "freeing" the dozens of immobile pilots.
+
+By the time I returned to STAR headquarters I was exhausted, but I still made time to check up on the galactic news before heading to my bed. After all, I had to help the citizens of that same galaxy tomorrow.

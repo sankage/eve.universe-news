@@ -1,0 +1,6 @@
+# CHAMBERLAIN KARSOTH PLEDGES HELP TO PRESERVE STARKMANIR; AMMATAR CONSULATE CLAIMS NO ADVANCED KNOWLEDGE OF LOST TRIBE
+Published on 2008-06-04T08:37:17 at https://universe.eveonline.com/new-eden-news/chamberlain-karsoth-pledges-help-to-preserve-starkmanir-ammatar-consulate-claims-no-advanced-knowledge-of-lost-tribe
+
+Amarr – Court Chamberlain Dochuta Karsoth released a statement pledging "the full benevolence and assistance" of the Amarr Empire towards "preserving the remaining population of the Starkmanir Tribe, if in fact it is proven that such a population exists". Adding that the Empire will "bring its considerable expertise to bear" in the investigation to verify the findings, his announcement comes within minutes of Eifyr & Company’s announcement of the discovery by the Sisters of EVE. 
+
+News of the Starkmanir’s discovery has shocked the Minmatar Republic. Believed to have been fully exterminated during the Amarr occupation of Minmatar space hundreds of years ago, the Starkmanir’s survival on the Ammatar planet of Halturzhan raises hope that other hidden populations may also exist. A spokesperson for the Ammatar Consulate stated that they are "unaware" of any such populations within their borders and "plead caution until the Empire completes their investigation, of which the Consulate has committed its full cooperation towards assisting."

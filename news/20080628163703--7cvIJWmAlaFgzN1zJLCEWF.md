@@ -1,0 +1,10 @@
+# Holding the Line - Two Weeks of War
+Published on 2008-06-28T16:37:03 at https://universe.eveonline.com/new-eden-news/holding-the-line-two-weeks-of-war
+
+In the two weeks since the passing of the "Emergency Militia War Powers Act" and the formation of the Federal Defence Union, loyal pilots of the Gallente Federation have drawn a bloody stalemate with the Caldari State over the various contested regions throughout Caldari and Gallente border space. Only one system, Odamia in Black Rise has switched hands since the start of the war, and efforts are still ongoing by the FDU to place the system back into Gallente hands. 
+
+Although current statistics show that the pilots signed up to the State Protectorate outnumber the Gallente pilots by a ratio of roughly 3:2, the FDU and the pilots that fly under it's banner have scored more ship kills overall, despite the numbers disadvantage against them. The past week has also seen FDU forces engage and destroy several State Protectorate carriers. Analysis of the contested areas shows the system of Tama in The Citadel region to be a common flash point for conflicts between Federal fleets and State fleets. Tama is located a few jumps away from Jita, one of New Eden's largest trade centers, and site of a recent incursion by FDU forces looking to harass State Protectorate pilots restocking and resupplying in the area. 
+
+One militia pilot has claimed that both sides are wishing to avoid losing larger fleets of ships, and will not engage in full territorial conflict for this reason. Smaller roaming fleets engaging targets of opportunity have proved effective at dealing with similar sized threats from the State Protectorate, and some FDU pilots are uninterested in seizing further systems from the Caldari, and rather enjoy the inevitable fighting that occurs when these small fleets meet. 
+
+The Federal Defence Broadcast Unit will continue to monitor the developing situation and wishes all Federation pilots good luck in forthcoming engagements.

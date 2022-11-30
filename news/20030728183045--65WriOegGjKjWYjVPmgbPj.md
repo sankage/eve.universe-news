@@ -1,0 +1,4 @@
+# Docks at Ryddinjorn VI - Moon 2 - Pator Tech School Station being investigated after a tragic accident.
+Published on 2003-07-28T18:30:45 at https://universe.eveonline.com/new-eden-news/docks-at-ryddinjorn-vi-moon-2-pator-tech-school-station-being-investigated-after-a-tragic-accident
+
+An accident has been reported at the docks in the giant space harbour of Ryddinjorn. A Minmatar Cruiser of the Stabber type is said to have exploded inside the station while undocking. All crewmembers were instantly killed. It is still being investigated what caused the accident, but our sources claim that there is no indication that this was an act of terrorism. While the incident is being investigated, the safety of undocking ships is being ensured and the docks are being repaired, no ships are allowed to undock from the station.

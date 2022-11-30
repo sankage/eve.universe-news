@@ -1,0 +1,18 @@
+# Theology Council issues press release regarding slave mistreatment case
+Published on 2008-03-25T20:47:33 at https://universe.eveonline.com/new-eden-news/theology-council-issues-press-release-regarding-slave-mistreatment-case
+
+The Theology Council have released a statement regarding the recent high-profile case involving the deaths of numerous slaves following a bet between two traders turned sour. The statement cleared the traders of any wrongdoing in the deaths, inciting harsh reactions from outside the Empire. 
+
+"The Theology Council have reviewed the evidence and, after careful consideration, found no cause to take legal action against Mastuk Rinmumi or Edophia Agmarn. The ownership of slaves is a right given to the Amarr by God and it is not for the Theology Council to interfere in this case. We do, however, stress to all Amarr citizens to be responsible in dealing with their charges. Slaves are an expensive commodity and should not be wasted." 
+
+Civil Rights activist, Saskia Junielle, expressed visible dismay at the announcement. "This is just typical of the inhumane Amarr system. How can they not prosecute these brutes for causing the deaths of so many people? Slavery is abhorrent and this case is a good indication of exactly why it should be outlawed. I will be lobbying the Minmatar and Gallente authorities and asking them to exert pressure on the Amarr Empire." 
+
+Mastuk Rinmumi, the trader the ship was registered to, was relieved at the Theology Council's findings. "As I said all along, the ship and slaves weren't even mine any more. This entire ordeal has tarnished my reputation in a very public way. Hopefully this vindication from the Theology Council will go toward repairing it." 
+
+Edophia Agmarn, whom was given the slaves by Rinmumi as an attempt to settle a bet, was similarly happy with the findings, but insisted that Rinmumi was ultimately responsible for the mess. "Until Rinmumi settles his wager properly with me, I don't consider this over. Obviously, I did nothing wrong here and the Theology Council agreed. Now it's a simply a matter of Rinmumi honouring his word." 
+
+Though most Amarrians are satisfied with the results of the findings, a few have spoken out against the treatment. "The Empire is faced with a slave shortage the likes of which we haven't seen in generations," said Holder Athakus Penn. "Now, ten thousand slaves may not seem like a large amount, but this sort of abuse may only be the tip of the iceberg. Failing to provide basic care for slaves only drives up the costs for honest, well-meaning Holders like myself. Incidents like this must be avoided and the only way to insure they are kept to a minimum is punishing those who violate the sacred trust God has given us." 
+
+Sister Herrie Tierremont, who was in charge of the relief mission that dealt with the slaves, said she was "Disappointed, but not surprised." at the press release. She confirmed that the Servant Sisters of EVE would however remain completely neutral in their politics, as any other course of action would be unethical. 
+
+Jaghard Fulgamon, the station manager at Narai III - Moon 1 - Ardishapur Family Bureau who originally reported the slaves condition to the Servant Sisters of EVE, has been dismissed from his position. The Ardishapur Family was "unavailable for comment," but one of the station workers commented that, "They were bothered by him washing dirty linen in public by calling in those Gallente hand-wringers. It was just asking for trouble." Jaghard himself seems to have disappeared since his dismissal, promoting a few conspiracy theories on the GalNet.

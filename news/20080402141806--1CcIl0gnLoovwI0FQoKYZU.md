@@ -1,0 +1,11 @@
+# Gallente Federation Calls For Calm
+Published on 2008-04-02T14:18:06 at https://universe.eveonline.com/new-eden-news/gallente-federation-calls-for-calm
+
+Luminaire – The Gallente Federation members of the CONCORD Assembly came forward today to publicise the Federal Government's official position in regards to the [recently leaked Code Aria Inquiry report]( http://myeve.eve-online.com/news.asp?a=single&nid=1808&tid=4) and the subsequent findings of the Assembly's last meeting. In a move that echoed the Amarr Empire's [press release yesterday]( http://myeve.eve-online.com/news.asp?a=single&nid=1897&tid=2), the Gallente Federation expressed their disappointment at the Inner Circle and their recent actions, stating the following. 
+
+“The Senate is deeply disappointed at the sequence of events which are now known to have taken place over the last year following the [sudden activation of the secured gates]( http://myeve.eve-online.com/news.asp?a=single&nid=1329&tid=4&sid=1023012286) bordering the Infested Regions. The Inner Circle has demonstrated a failure in their responsibilities, abuse of our trust, and denied us access to crucial information relating to the security of the jump gate network." 
+
+The Gallente were however quick to highlight their more positive viewpoints on these developments, by offering their citizens reassurances regarding their security.  
+"Although the recent revelations of the Inner Circle appear grave," continued the statement, "our assessment is that the current threat posed by rogue drones, as informed by data supplied by the Federal Intelligence Office, is well within the Gallente Federation's capability to handle. Therefore our citizens have nothing to fear. Our government has already convened a review of the security of all Gallente-controlled jump gates that will cause no noticeable disruption to travel through the network in Gallente Federation space. We urge our citizens to remain calm and positive, and we would like to assure them that these recent revelations appear to be more disturbing on the surface than they actually are.” 
+
+Towards the end of the statement, the Gallente also offered their condolences and sympathies to capsuleer Mera Vahlsina, whose partner Captain Bethol Jan Kozer was lost during the secret incursion into the Infested Regions that was documented in the leaked report.

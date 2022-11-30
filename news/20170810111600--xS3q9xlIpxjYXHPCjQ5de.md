@@ -1,0 +1,14 @@
+# Clash in 7G-QIG
+Published on 2017-08-10T11:16:00 at https://universe.eveonline.com/new-eden-news/clash-in-7g-qig
+
+The Imperium is a large coalition comprised of multiple alliances led by Goonswarm Federation. The coalition currently resides in the Delve region of null security space. Since they moved into Delve, they have been mining constantly using the powerful Rorqual-class industrial capital to eat their way through asteroid belts all over the region.
+
+The Rorqual while it is an important asset for any mining fleet, can also be a hindrance. The Rorqual's industrial core when active, provides a very large boost to the mining ability of mining drones. The Industrial Core reroutes power from the engines towards the core itself boosting the defensive capabilities of the Rorqual as well as the mining and compression machinery. This means that while the industrial core is active, the Rorqual is effectively locked in place until the power has been rerouted back from the core to the engines. This process usually takes around five minutes to do, and leaves the Rorqual unable to flee a hostile situation. Despite this, many alliances opt to use the Rorqual in clusters and have capital ships on standby to jump to a cynosural field should one of the Rorquals get tackled.
+
+3rd August YC119, in the system of 7G-QIG in the region of Delve:
+
+At roughly 18:50 a combined force of Shadow Cartel and WE FORM VOLTA along with several other alliances managed to tackle 5 Rorqual-class Industrial capital ships. Usually, when the Imperium have a hostile fleet in their region they would form a defense fleet and see the attackers off. This time however, they did not. Earlier in the week The Mittani, Goonswarm Federation leader and head of the Imperium coalition, announced that they would be going to 'burn the north'. As a result, there was no one left to defend the Rorqual mining fleet. There were a total of 11 Roquals when the combined hostile fleet arrived and all but 5 managed to escape.
+
+The Rorquals were quickly dealt with, only one of which had the time to activate the Pulse Activated Nexus Invulnerability Core module; "PANIC" for short. The PANIC module provides a shield around the industrial ships in the fleet and the Rorqual that used it. It strengthens the shields considerably but only lasts for six or seven minutes. Usually this would be enough time for most large alliances to scramble a defense fleet and rush to the aid. With no local assistance available, the last Rorqual was destroyed which left the hostile fleet to loot the field before making their swift escape.
+
+The total damage was a staggering 56 billion ISK destroyed while the attackers suffered no losses. A total of 5 Rorquals, a Rattlesnake-class battleship along with several other ships were destroyed. The battle report can be found [Here](https://zkillboard.com/related/30004768/201708031800/).

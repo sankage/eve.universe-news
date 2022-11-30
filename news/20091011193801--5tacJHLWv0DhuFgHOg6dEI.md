@@ -1,0 +1,10 @@
+# Spacelane Patrol Launches Official Investigation Into Kaunokka Incident
+Published on 2009-10-11T19:38:01 at https://universe.eveonline.com/new-eden-news/spacelane-patrol-launches-official-investigation-into-kaunokka-incident
+
+![](http://www.eve-mercury.net/images/mercurybanner.png)  
+  
+Muvolailen - Spacelane Patrol, the security arm of the CBD Corporation, has launched an official investigation into the explosion which took place recently at Deep Core Mining's Kaunokka moon mining facility. The CBD Corporation is the majority shareholder of DCMI and as such is fully entitled to investigate the actions of its subsidiary, but pundits still believe the real reason for the investigation is the growing public attention toward the incident.
+
+Meanwhile, the DCMI management in the Otasawa constellation has answered the appeal made by the workers. In what was seen as an uncharacteristically blunt statement, Worin Kauguro, the corporation's spokesman in Kaunokka, said, "We are saddened at these groundless accusations. Despite our best efforts to introduce measures aimed to increase efficiency and productivity, the recent performance of the facility suggests that some personnel do not take our best interests to heart. It is too early to say what exactly caused the incident, but worker carelessness is a likely explanation." He added that the corporation will consider any worker strikes or deliberate disruptions in regular operations a breach of contract and will impose stiff penalties on those found guilty.
+
+At the same time, some sources claim the corporation had indeed been neglecting its moon strip mining. "The facilities similar to the Kaunokka one were mostly built a decade ago, and are nearing the end of their useful lives," says an industry expert who chose to remain anonymous. "They are not producing any rare resources, and substantial investments are required for their technological refitting. So it would make more sense to build new mining stations than to try and upgrade these ones. Even with the influx from CAESA, DCMI has better ways to spend its money."

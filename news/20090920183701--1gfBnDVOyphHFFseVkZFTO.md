@@ -1,0 +1,12 @@
+# In the Wake of Jarek, Religion Continues to Be Contentious Issue
+Published on 2009-09-20T18:37:01 at https://universe.eveonline.com/new-eden-news/in-the-wake-of-jarek-religion-continues-to-be-contentious-issue
+
+![](http://www.eve-mercury.net/images/mercurybanner.png)  
+  
+Pator - The murder of Abel Jarek several weeks ago in what seems to be a religiously-motivated attack has highlighted growing tensions over the Amarr faith gaining a foothold in the Republic. According to a survey by the Republic University, most Nefantar and a significant portion of other recent immigrants from the Mandate and the Empire are choosing to keep their Amarrian religious beliefs. While this segment of the population remains a tiny minority, according to the survey such a minority was, just a few years ago, "so small as to be nearly nonexistent."  
+  
+Nowhere is this clash of cultures more evident than on Matar. Though Jarek's Salvation township was the most obvious of the new Amarr religious communities, it was not the only one. In the low-rent districts where many immigrants have settled, makeshift "churches" have been established in backrooms and empty warehouses, often advertised only by word of mouth.
+
+Even before Jarek's death, many within the immigrant communities feared similar attacks. "Many people do not understand that the word of God is universal," said Dovirch Brettirdur, pastor of one of these small churches. "They see our faith as brainwashing, or an attempt by the Amarr to infiltrate the Republic, when nothing could be further from the truth. We only want to make his light available to those who seek it."  
+  
+Unfortunately, for many outside these communities, it is impossible to separate the Amarr faith from the Amarr Empire and its history with the Republic. Perhaps most ironically, some of the strongest critics of this minority have been other recent immigrants, many of whom were enslaved until recently.  The fact that many of these people often live in the same or nearby neighborhoods only intensifies the problem. While Republic government authorities as high as Sanmatar Shakor have said they are committed to ensuring the safety of all Minmatar citizens, regardless of tribe or religion, many of the people in these communities remain skeptical about the commitment of those charged with protecting those rights, noting that Jarek's murderers still remain at large.

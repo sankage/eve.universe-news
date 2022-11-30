@@ -1,0 +1,4 @@
+# Rumors abound on a secret research pact
+Published on 2003-07-17T17:01:11 at https://universe.eveonline.com/new-eden-news/rumors-abound-on-a-secret-research-pact
+
+Unidentified sources within the Gallente Federation have indicated that negotiations for a major research pact between the Federation and the Caldari State are underway. Nothing has been confirmed, but it is understood that delegates from both sides have been meeting in a secret location, surrounded by heavy police presence to keep curious travelers at bay. If true, this will be a momentous event in our collective history and perhaps the clearest indicator yet of how much the Gallente-Caldari relations have thawed in recent years. A sign of future peace and prosperity if there ever was one. More information will be broadcast as soon as it becomes available.

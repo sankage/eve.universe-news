@@ -1,0 +1,43 @@
+# Mila Auvuane Gariushi
+Published on  at https://universe.eveonline.com/new-eden-news/mila-auvuane-gariushi
+
+**Mila Auvuane Gariushi** (born March 3, YC62) was owner and CEO of Satelles Enterprises under the assumed name of Mila Strevanos until YC100 when, following a series of highly-classified events in the Pure Blind region, she became Chief Financial Officer of [Ishukone Corporation](7gc0ekpgJoQ3hygIB6ocHI) under the assumed name of Kinachi Hepimeki. Her true identity as [Otro Gariushi](5QydCJCoYvbvbWvFlAlbHg)'s older sister has only been revealed to a select few individuals, most of whom are now deceased.
+
+## Early Years
+
+Mila Gariushi was born on Isinokka Eight in the Lonetrek region. She enjoyed a quiet childhood and adolescence until age 15 when her father, [Vilamo](4IwNRYgMn8A2ZM0QPprHvA), moved the family to Drenali Seven in the Fade region in order to take advantage of Ishukone's latest industrial-scale mining operations. The family settled in the town of Kaurikou Junction.
+
+Mila's mother confided in her that she dreaded the move to Fade and didn't understand why it was so important to Vilamo that he succeeded there. According to Mila, Vilamo never asked her mother's opinion about the move but simply went ahead with it for "ego-driven, selfish, unnecessary reasons".
+
+When Mila's mother was later killed in an industrial accident Mila's relationship with her father disintegrated. She blamed Vilamo for the death and felt he was unable to provide for the family on his own. Citing these irreconcilable differences, Mila abandoned her father and her young brother, Otro, who was just five when she left.
+
+At first, Mila struggled to find a place for herself. Ishukone was in the midst of withdrawing its operations from Drenali Seven resulting in the collapse of the local economy. The average person could not afford to leave the planet on a whim and employment opportunities were scarce. Mila was forced to move from one friend's house to another under constant risk of raising suspicion regarding her situation at home. When this avenue was exhausted Mila took to the streets, barely scraping by for several months in Drenali Seven's cold climate. Nearly starving and at risk of freezing to death, Mila reluctantly turned to prostitution. This allowed her to eventually save enough money for passage off Drenali Seven.
+
+## "Madams" Career
+
+Once in space Mila continued to provide for herself via prostitution. She also learned hand-to-hand combat techniques as a measure of self-defense. It wasn't until a client accidentally confessed a bit of privileged information that she realized she had an opportunity to make an even better living. Her photographic memory ensured she could accurately retain and later sell the secret information exploited during her encounters.
+
+Over time Mila began to target a specific kind of man: corporate executives, scientists, and other such individuals with access to restricted information. To assist both with managing the information gathered and to obtain more, Mila recruited other women with specific qualities: stunning natural beauty, undeniable sensuality, a sharp memory, and origins in repressive poverty.
+
+In YC92 at the age of 30, Mila adopted the surname Strevanos and incorporated Satelles Enterprises, registering the company with the [House of Records](6JvE4aPaJ3FcJ1dZPhFfES) as a corporate escort service. Under her direction over the next eight years, Satelles Enterprises grew into a successful intelligence network that made both Mila and her employees wealthy.
+
+When Mila's network brought her rumors regarding a project simply named "Raven", she started to dig deeper. In YC100 she booked passage on [Ishukone Watch](21GQBhNgawJQQ39wqVX4yU) vessel IWV-35G15 "Trevani" under the guise of offering her escort services to the Ishukone executives and scientists on board. She had just obtained information about the prototype Raven-class battleship Ishukone Corporation's CFO, Ralirashi Okimo, had been secretly building when the Trevani came under attack by pirates. Mila survived by entering a cargo container with other passengers. The cargo container was jettisoned to space moments before the Trevani's destruction and subsequently picked up by the pirates.
+
+## Family Reunion
+
+Mila found herself subjected to interrogation and mental torture via a sensory deprivation tank. The questions centered around her true identity, as the pirates knew "Mila Strevanos" had not existed prior to the creation of Satelles Enterprises. When she admitted her real name was Mila Auvuane Gariushi, she was quickly extracted from the interrogation chamber and reunited with her younger brother Otro, who had led the attack against the Trevani.
+
+Mila rejected her sibling and condemned him and his associate Gavriel as thieves and murderers until they described their reasons for targeting Ishukone vessels. It was their belief that many people, including Mila and her family, had suffered needlessly due to Ishukone's inattention and mishandling of operations in the Fade region. They wanted to put a stop to the corruption and bring the appropriate parties to account.
+
+Convinced, Mila joined Otro's cause and traveled with him and his fleet to Forward-Nine, a [Guristas](55L861YhB1ZfaAST6ZbhdO) listening post hidden along the [Caldari State](7unGNsrMFwIWXMMbrM2jfy) border. The Forwards bases had been collecting information about Ishukone for years. Mila then used her experience and talents to reconstruct the financial history of Ishukone—both the publicly released version and reality—with astonishing detail: everything from warehouse inventory records to employee payrolls; corporate debt structuring to shipping invoices; executive meeting notes to general account ledgers; and every component of Ishukone's strategic plans for the upcoming fiscal year. This effort revealed CEO Les Akkilen had been betraying his competitors to the Guristas by providing the pirates with stolen shipping itineraries in exchange for the Guristas leaving Ishukone vessels alone. Additionally, Ishukone purchased cargo recovered from ships the Guristas ransomed or salvaged at cost, effectively breaking open Ishukone's profit margin. Mila also discovered evidence which proved Akkilen had requested attacks against specific Ishukone ships carrying various individuals affiliated with Ishukone whose deaths were conveniently beneficial to him.
+
+This information produced a staggering list of illegal activities committed by Ishukone Corporation which, if publicized, would have been serious enough to warrant the permanent takedown of Ishukone and death sentences for its senior-level executives. Mila estimated Akkilen's activities were directly responsible for competitor ship, equipment, and cargo losses exceeding three trillion ISK which translated directly into profit for Ishukone. This estimate did not include abstract consequences of losses to competitors such as in cost overruns, project delays, and consumer confidence. The cost for loss of life could not be calculated.
+
+Mila's contribution allowed Otro and Gavriel to accurately gauge the financial impact of their efforts against Ishukone for the first time and changed the scope of their activities from that of a guerilla war to one of surgical strikes with anticipated, quantifiable long-term consequences. Together they planned to take down Ishukone and steal the Raven. Mila provided a copy of her analysis to one of her operatives in the Malkalen system, where Ishukone was headquartered, as well as several other secret locations. The operative had instructions to present the analysis to Ishukone CFO Ralirashi Okimo, which resulted in Otro winning Okimo's loyalty and assistance. The other copies would only be revealed to Ishukone's competitors if the plan went awry.
+
+Before they could proceed, Otro's fleet was ambushed at Forward-Nine by a Guristas fleet commanded by Bane, trapping Mila, Gavriel, and a portion of Otro's forces inside the station. Having anticipated this event, Bane sent a troop transport to dock with the station, forcing Mila and the others to defend themselves on foot. With no formal military training, Mila received a crash course in weapons handling from Gavriel. During the course of the battle, Gavriel was gravely wounded and Mila comforted him in his final moments before Otro's arrival after defeating Bane's fleet outside Forward-Nine.
+
+Thereafter, with her brother the new CEO of Ishukone Corporation, Mila replaced Ralirashi Okimo as Chief Financial Officer under the name Kinachi Hepimeki. To a select few she remains known only as "Mila".
+
+## See Also
+* [Ishukone Corporation](7gc0ekpgJoQ3hygIB6ocHI)

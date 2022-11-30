@@ -1,0 +1,10 @@
+# DED Security Directive Cites Concern Over Advanced Technology Proliferation
+Published on 2003-12-23T13:17:27 at https://universe.eveonline.com/new-eden-news/ded-security-directive-cites-concern-over-advanced-technology-proliferation
+
+JERHESH – A leaked security memo originally circulated internally at DED cites increased surveillance efforts on at least two research facilities due to intelligence reports that scientists operating there may be on the verge of significant technological advancements. The security directive, signed by DED Security Commander Haram Goskakar, states that the “intel indicates with high confidence that technological breakthroughs are imminent at the Viziam Factory in Baviasi II and the Thukker Mix Factory in Brin V”. Also listed on the directive are the names of scientists currently working with the research agents Bikan Uanen and Eladizo Ansfriken.   
+  
+The memo explains that “with an alarming number of reports emanating from deep-space regions about an unexpectedly sharp upgrade in the types of technology available to pirate organizations, the focus is to become more proactive in our mission by keeping surveillance on those entities responsible for the proliferation of high-tech arms to criminals”. Although owners of high tech patents and equipment are under no legal constraints regarding the sale of their property, CONCORD certainly has final word over how the equipment is used within the borders of Empire space. The Minmatar government, while not openly challenging DED in this light, is already rumored to be applying any high-tech advancement towards the support of an underground war effort against the Amarr Empire.   
+  
+Bikan Uanen and Eladizo Ansfriken have both refused to comment on either the DED security directive or the status of any projects they are currently involved with. The memo suggests that at least three more stations have been the sites of heightened electronic “chatter” consistent with signs of pronounced scientific advancements.   
+  
+DED, CONCORD’s law enforcement branch, is primarily responsible for the tracking down and apprehension of known criminals.

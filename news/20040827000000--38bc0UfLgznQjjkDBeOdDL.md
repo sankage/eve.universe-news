@@ -1,0 +1,29 @@
+# The Cult of Tetrimon
+Published on 2004-08-27T00:00:00 at https://universe.eveonline.com/new-eden-news/the-cult-of-tetrimon
+
+![The Cult of Tetrimon](https://web.ccpgamescdn.com/communityassets/img/chronicles/chronicleImage/potw_tetrimon.jpg#left)
+
+---
+In the present day, the Tetrimon are seen as a small fanatical religious cult, that have been responsible for a number of disturbing terrorist attacks against targets both amarr and foreigners.
+
+The truth of the matter is something that the Amarr heirarchy would rather forget.
+
+The roots of the cult lie in the year 21460, at the end of the reign of Zaragram Ardishapur II, also known as the "Mad Emperor." At that time the Amarr Emperor was the leader of the Apostles, the first among equals, and his authority was channeled through the Apostle Council. But as soon as he came into power Zaragram started issuing decrees, most of them religious in nature. Many of these decrees directly contradicted the Scriptures, uprooting and eradicating many of the most sacred traditions of Amarr society. Zaragram gave himself the status of a God-Emperor, and ruled the Empire according to his whims.
+
+One nobleman of the Ardishapur family grew so ashamed of what his own grandfather had done to the traditions and religion of the Amarr that he entered the "City of God" in the Shastal system, and with his own hand killed the Emperor. Before the nobleman was cut down by the surrounding guards, he raised his bloody hand and cried "a manu dei e tet rimon " - I am the devoted hand of the divine god. ("Tetrimon" means "Divine Devotion")
+
+The Council of Apostles, the rightful ruling agency of the Amarrians, took back their former power, and attempted to restore the Ammarian faith. The nobleman was beatified as Saint Tetrimon, and the Council of Apostles took heed of his actions, and created an Order to reverse the corrupting influence of the now deceased Emperor Zaragram II - The Order of St Tetrimon.
+
+This Order was given the task of purifying the Amarr faith, of preserving the original scriptures, and of eradicating apocrypha and deuterocanonical chapters (i.e. removing those chapters of the scriptures which disagreed with the "canon" of the Amarr faith, or those chapters which had been added to the scriptures more recently.) The Order went on to ensure that the decrees of Zaragram were reversed. All icons and pictures of him were either destroyed or his face and name scraped out, and his city was laid to waste.
+
+During the moral reforms which took place from 21875 to 21950, the Council of Apostles was stripped of its powers, which were transferred to the Emperor and the newly formed Privy Council. The Emperor was elevated to the status of the Empire’s spiritual and worldly leader. Many of the Apostles’ supporters were strongly reminded of the Mad Emperor Zaragram II some 500 years earlier, but many of those voices were silenced, forever.
+
+One of the nay-sayers was Tetrimon IV, the current grand master of the Order of St Tetrimon. Unlike many, he did not openly defy the Emperor, but instead hid the records and artifacts of the Apostles.
+
+The new Emperor, still insecure in his newly elevated position, gathered those religious leaders supportive of him into a special assembly to create a new canon of scriptures that would increase the moral authority of the Emperor. This assembly became permanent and was named the Theology Council -- defenders of the new religious and political order. Their Inquisitors were much feared throughout the Empire. Under their ruling fist many aspects of the Amarr faith were purged and modified to fit the new political order of the Empire - with the Emperor as the supreme and infallible voice of God.
+
+The Order of St Tetrimon survived in small groups, often finding themselves at odds with the Theology Council and the Privy Council, but still openly carrying out their work of preserving the original liturgical records of the Amarr faith. In 22762, with the breakup of the Empire and the forming of the Khanid Kingdom, the Emperor issued a decree suppressing the Order of St Tetrimon, asserting that he did so to maintain peace and tranquility within the Empire. Tetrimon houses and colleges everywhere were seized by the local authorities. Some Order members were imprisoned; some were driven into exile. The Grand Master of the Order, Lozera Riana, was declared a heretic and imprisoned in the holy city of Dam-Torsad, where he died two years later.
+
+The Order remained active in the Khanid Kingdom where Khanid II, for his own political reasons, would not allow the Imperial decree to take full effect. There were also accusations laid against both the Sarum and Ardishapur families concerning secret support for the Order, but they retained enough power in the Privy Council to ignore these accusations. Over the following years, the Tetrimon were forced to learn to defend their beliefs, and eventually were strong and skilled enough to strike back against those who they felt were corrupting the hearts and minds of the Amarr people. During the slave uprising of 23216, the Tetrimon reappeared in the Amarr Empire in force, and an agreement was reached with Heideran VII, whereby the Order were allowed free passage through the Empire in return for assistance against Minmatar forces. Ships flying Tetrimon colours became much feared by the young Republic Fleet during this time for their fearless attacks and the suicidal fury shown by their pilots.
+
+During the remaining reign of Heideran the Tetrimon were left untouched, on the understanding that they would not attempt to undermine the rule of Heideran. Quiet they remained, aside from a few actions taken against the Kor-Azor family -- specifically against the Heir Doriam, who flouted traditions with his releasing of slaves and liberal views.

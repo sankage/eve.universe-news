@@ -1,0 +1,12 @@
+# Sebiestor
+Published on  at https://universe.eveonline.com/new-eden-news/sebiestor
+
+## Sebiestor Tribe
+
+A patient, contemplative, and rather graceful people, the Sebiestor are known far and wide as engineers and inventors. Their reputation for tinkering with any kind of technology is well deserved, and the Sebiestor become very passionate when their inquisitive nature is aroused. Occasionally, the Sebiestor passions can turn to obsession, and individuals can have a marked tendency to psychological cruelty and outbursts of temper. All that said, the Sebiestor, in the main, are very level headed, even when some project activates their energetic enthusiasm.
+
+Excellence in engineering naturally propelled the Sebiestor to the fore during the period when the Minmatar Empire pushed into space. During the Amarr occupation, the Sebiestor did much to hold what remained of Minmatar society together with their skill at maintaining or adapting technology. The Amarr themselves recognized the usefulness of the Sebiestor for use as slaves in roles requiring technical ability and had some interest in ensuring they had a pool of talent from which to draw such slaves. As a result, while the Sebiestor suffered much from the depredations of the slavers, the tribe avoided a total dissolution of their culture and communities.
+
+During the Great Rebellion, the Sebiestor became the armorers and quartermasters of the rebel forces, as well as providing many fighters, along with every tribe that rose up against the Amarr. When the Minmatar Republic was founded, the Sebiestor once more took a lead in space, and they are responsible for engineering most of the ships and stations constructed by the Minmatar. Once again free to work with advanced technology, the Sebiestor have established a reputation for a very high order of skill in mathematics and nanotechnology.
+
+Politically the Sebiestor instinctively favor diplomacy before aggressive action, but the identification of the Karin Midular regime with “appeasement” has significantly tempered this tendency, pushing the tribe toward a more hawkish stance as they seek to shake off that reputation. The assassination of Karin Midular, in a twist of black irony, has acted as further pressure in this direction. Regardless, the Sebiestor are a strong stabilizing influence within the republic and have always been the readiest to cooperate with others, even beyond the Minmatar tribes.

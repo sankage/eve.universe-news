@@ -1,0 +1,12 @@
+# Wiyrkomi Peace Corps Increases Caldari Prime Commitment
+Published on 2009-02-02T16:13:31 at https://universe.eveonline.com/new-eden-news/wiyrkomi-peace-corps-increases-caldari-prime-commitment
+
+Dantumi - The Wiyrkomi Peace Corps announced today that it was committing an additional brigade of troops to the Caldari Prime occupation force. This comes on the heels of last week's report that the Navy is beginning to feel the pinch of the occupation's cost on their other operations.
+
+The current occupation force is for the most part made up of Navy marines and Provist troops, which are protecting infrastructure and population centers. Though they took significant part in the initial invasion, corporate forces have made up a much smaller percentage of the occupation force, generally focused on protecting industrial sites seized and redistributed to the megacorporations. Most of these belong to Kaalakiota, Lai Dai, and Wiyrkomi and report through their corporate chains of command.
+
+This new commitment by Wiyrkomi is different. "These troops have been placed under contract to the provisional governor and his staff," said WPC chief of operations Hittanpaa Vaankalen. "For the duration of this 12-month deployment they will be integrated into the command structure of the Directorate. It is our hope that these additional forces can help to ensure the safety and security of the Caldari citizens of our homeworld and relieve the burden placed on our brave men and women in uniform who are already there."
+
+While this type of allocation is not completely unprecedented during times of war, corporations have been largely unwilling to hand control of their military forces to other corporations or government entities (with the exception of the Navy) in the past. "This agreement is certainly unusual," explains Amaari Karnuras, professor of political and memetic science at the School of Applied Knowledge. "However, the relationship between the Directorate and Wiyrkomi has been warming over the last month or two, especially since the announcement of the CAESA."
+
+He did caution against seeing this as the start of a trend, however. "Wiyrkomi's military has had a poor reputation ever since the Ingalles Incident; it's quite possible they see this as a chance to redeem themselves. The other megacorporations, especially those who are unsure of the occupation or are opposed to it, will probably be considerably more reluctant to give control of even a small part of their forces to the Provists."

@@ -1,0 +1,10 @@
+# CBD Chief Attended 'Social Augmentation' Conference with Wiyrkomi CEO
+Published on 2008-11-01T11:08:51 at https://universe.eveonline.com/new-eden-news/cbd-chief-attended-social-augmentation-conference-with-wiyrkomi-ceo
+
+Muvolailen - Imanima Hinpas, CEO of CBD Corporation, attended a Mercantile Club conference at the prestigious Raata Heritage Spa in the company of Wiyrkomi CEO, Kuruta Irio, anonymous sources at the spa claimed today. Also revealed was the topic of the club gathering: "Social Augmentation and the Enhancement of Caldari Beauty." The two CEOs are said to have attended "not just as mere business acquaintances."
+
+As reported recently, Kuruta Irio began to take an ever-increasing interest in the healthcare subsidiary Wiyrkomi Health and Wellbeing (WHW) on his return from the spa meeting. Anonymous gossip networks are claiming that Irio was introduced to the concept of "radical beautification by invasive nanotechnology" by Hinpas. While it is not possible to confirm these claims, the WHW portfolio has concentrated on cosmetic augmentation, including heavy investment in nanotechnology that has been a drain on the finances of the Wiyrkomi group as a whole.
+
+Responding to these claims, Imanima Hinpas, a noted beauty and former Mercantile Club debutante, said, "It's true that Kuruta and I share an interest in the Caldari form and its enhancement with the best technology in the universe - Caldari technology. I don't see why this should be a shock to anyone. Kuruta is not only a shrewd corporate leader but also a very handsome man himself."
+
+Hinpas has had herself considerably augmented in recent years but commentators are divided as to the merits of her various facial and muscle tone implants. "I find her, frankly, grotesque," said Isaavio Finulkiaro of Caldari Augmentation Weekly, a specialist NetSheet. Ruva Duvaseki, social correspondent of the Kimotoro Guardian, took a different view, "It is possible Hinpas is showing us the future of Caldari beauty. She's lost none of her vitality and strength, which I think is the true mark of Caldari womanhood."

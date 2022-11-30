@@ -1,0 +1,10 @@
+# Okalala Responds To Reppola Comments
+Published on 2009-02-06T14:52:17 at https://universe.eveonline.com/new-eden-news/okalala-responds-to-reppola-comments
+
+Isikemi - Minedrill CEO Soisonen Okalala sat down with Echelon Entertainment's Iesa Murikomo yesterday for an interview scheduled to air later this week on Murikomo's _This Is The State_ program. In segments of the interview aired today on a number of Echelon broadcasts, Okalala responded to the interview earlier this week by Ishukone Watch CEO Mens Reppola, his leading opponent for the CEO position at parent Ishukone.
+
+"I think the problem with the Navy's report is that it does not balance the costs of the occupation with what we have gained," Okalala remarked. "It isn't just a symbol of how far we've come in the last two hundred years, it is a deterrent and someday, it will be a productive planet again. It won't happen overnight, however, and I think anyone expecting instant results simply isn't being at all realistic.
+
+"As far as the militia effort in Verge Vendor goes, I want to congratulate the commanders in the field there. I'm sure any military commander would tell you that attacking the enemy's strongest point, which has been in Black Rise until lately, is hardly a wise move. We've already seen the Federation militia pull out of Black Rise recently in order to try and retake those systems, so obviously the Verge Vendor thrust has had the effect of distracting them. This has already given our forces an excellent window for a counterattack that they have exploited with aplomb."
+
+Okalala wasn't entirely critical of Reppola, however, agreeing with his comments on what direction the State needs to take. "Mr. Reppola is entirely correct when he says we need to get back to the business of solving problems. Executor Heth's agreement with the Amarr is such an example, and it's one of the reasons I am excited that Minedrill was one of the first companies to take advantage of it. It's worked out very well for us; thanks to bond sales to the Amarr, we're expecting a significant increase in our refining capacity by the middle of the year."

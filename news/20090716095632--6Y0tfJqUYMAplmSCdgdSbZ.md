@@ -1,0 +1,12 @@
+# Konora Officials Arrested on Corruption Charges, Thukker 'Wormhole Strategy' Revealed
+Published on 2009-07-16T09:56:32 at https://universe.eveonline.com/new-eden-news/konora-officials-arrested-on-corruption-charges-thukker-wormhole-strategy-revealed
+
+![](http://www.eve-mercury.net/images/mercurybanner.png)  
+  
+Konora, Metropolis - A number of Konora officials, including Freedom Extension station administrator Korlo Seycha, have been arrested on charges ranging from corruption to collaboration with the enemy. Republic Fleet investigators believe the Konora food shortage crisis was engineered by a renegade splinter faction of Angels as a means to provide a plausible cover for their takeover of the system and potentially to cast themselves in the role of saviors.
+
+Administrator Seycha is suspected of a leading role in orchestrating the shortages with his motivation alleged to be a multi-million ISK bribe from the leader of the renegades, Commander Origen. While the personal databases of Commander Origen have been recovered, it is unclear whether he himself escaped or was killed in the battle with Republic-Thukker forces. Few renegade ships were able to escape to the Great Wildlands and reports indicate that several that did were picked off by Angel Cartel raiders lying in wait.
+
+Suggestions that Thukker intelligence operatives may have coordinated with the Cartel have been met with an absolute refusal to comment by Thukker authorities. However, accumulated sensor data and eyewitness accounts of the battle at Konora have confirmed that the Thukker element of the relief fleet took advantage of a wormhole in the system to launch a surprise attack at the rear of the renegade force while it prepared to meet Republic forces head-on. The Thukker force commander, Jormal Kehok, refused to comment on the details of their attack but confirmed that some Thukker ships entered Konora by means of an unstable wormhole. Commander Ikel Freyakor of the Republic Military School observed, "While such a strategy could not have been planned without a convenient wormhole, it illustrates the skill the Thukker are rapidly acquiring in the scouting and exploitation of wormholes."
+
+Sanmatar Shakor's office has issued a statement declaring the emergency in Konora to be over and thanking the Republic Fleet and Thukker Tribe for their rapid action. Kaalakiota Corporation has declared itself 'satisfied' with Republic Fleet cooperation and re-opened their Konora station to civilian passenger traffic.

@@ -1,0 +1,12 @@
+# Empires To Help Collect Jovian Body Parts?
+Published on 2004-05-10T18:12:11 at https://universe.eveonline.com/new-eden-news/empires-to-help-collect-jovian-body-parts
+
+Since last week’s fateful accident involving Jovian Extra-Racial Liaison Misu Banyia, the four empires have each sent messages expressing their condolences to the Jove Empire. Additionally, Chief Executive Panel spokesman Kuuvar Mesarnur yesterday released a statement wherein the Caldari State expresses regret at the killing of unofficial Jovian spokesman Veniel in New Caldari last Friday -- an incident attributable to the tremendous population in the system at the time, which caused decreased response time from the on-site Caldari security forces.   
+  
+No official communication has been received from the Jovians since the Friday in question, when Tunai Moran, CONCORD’s Jovian representative, issued a strongly worded statement condemning Veniel’s murder and calling the Caldari State to task on their negligence. Moran, however, has in the last two days brought to light certain facts regarding the status of Baniya’s project and the liaison himself. Apparently, as he began to disintegrate, Baniya’s last-minute brain scan, a crucial element in the cloning process, was only partly able to penetrate the transportation device’s tremendously dense Fullerine casing, causing the Jovian’s clone to activate without the necessary brain functions to sustain it. The clone, therefore, died mere seconds after being given life.   
+  
+Moran has also reportedly said that the Jove Empire may, using advanced DNA sampling and retro-scanning techniques, be able to bring Baniya back, given that they can collect enough of his biomass to extract a sufficient amount of the cells needed for the procedures.   
+  
+In the wake of this news, word is beginning to spread in diplomatic circles that the four empires, working jointly through representatives in CONCORD’s inner circle, have begun plans on the massive undertaking of collecting Baniya’s body parts in order to present them to the Jovians. Additionally, whispers on the grapevine point to tensions mounting between the empires as to which of the four will manage to procure the greatest amount of Baniya’s biomass, thus currying future favor with the Jove Empire. No official announcements have been made yet, but according to confirmed reports, pieces of the Jovian delegate have begun exchanging hands on galactic markets for vast sums.   
+  
+More updates as they arrive.

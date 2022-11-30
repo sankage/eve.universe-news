@@ -1,0 +1,16 @@
+# BoB’s day out, a nightmare for Venal residents?
+Published on 2005-12-05T22:25:09 at https://universe.eveonline.com/new-eden-news/bobs-day-out-a-nightmare-for-venal-residents
+
+BoB’s day out, a nightmare for Venal residents? Last night there were an exceptionally large number of pilots surrounding the Venal Region when Band of Brothers decided to relax a little up north. Venal has always been a heavily contested area and lately it has been a central region for the Phoenix Alliance together with their close friends NBSI Alliance and The Forsaken Empire. In the last two months the Five has been flying around the area as well, with nothing else on their mind but the total destruction of PA and friends. 
+
+The evening started with the Five attacking the F-E pos in the system H-PA29, which is a major basis of operation for many alliances. Wise men know that if you are looking for a fight, then the place to be is that little system in Venal. The pos of F-E survived the onslaught of dreadnoughts and other ships because the Five decided to retreat when they heard a hostile force was on its way to engage. 
+
+Later on the Five and BoB met up in 9-266Q facing the combined fleet of PA, F-E and NBSI, reports regarding this battle are contradicting. Five claims there was hardly a battle to speak off when PA, F-E and NBSI hid as soon as they entered the system, and El Covah said that even though his systems were malfunctioning slightly he believes PA and F-E won. It’s always hard to determine who won a battle, especially when a neutral reporter arrives too late to see for herself, but the real strange factor here is BoB. What are they doing in Venal? 
+
+I asked Carth Jared whether the Five invited BoB to assist them in the destruction of the three Northern Alliances, the answer was negative Carth Jared: “Personally I would rather have them out of the way, if they hadn’t been here today the PA/F-E force might have engaged us”. PA and F-E are worried that BoB is back to help Five in the removal of the PA, F-E and NBSI, but they are confident that even if they work together they will fail. Le Cardinal: “PA is here and we intend to stay”. El Covah: “BoB and Five have failed so many times, Five has failed in scalding path, BoB has failed here and they will fail again.” 
+
+According to Shrike BoB is only visiting Venal for some rest and recreation, he compares Venal to an old girlfriend, you have been there before and you can have her again, but the excitement is gone. It seems BoB is not out to claim Venal or to chase the three alliances away from Venal and its surrounding areas. BoB is only there for some relaxation and chasing up the locals for a cheap thrills. 
+
+Shrike is not worried that this little fieldtrip may finally unite several large alliances in a full scale attack on BoB in Fountain. Shrike: “NBSI is falling apart with E-R leaving, FE don’t know any space five jumps from D7, PA going somewhere else to actually try and attack?” In return F-E is not impressed by Five and BoB either. Silus Yarmon: “We are aware of the leadership issues within the Five and its impending disbandment, and BoB presence here today is mainly a recruiting attempt for the remaining corporations of the Five.” 
+
+Whether the Five are having leadership issues remains to be seen and might lead up to another story.

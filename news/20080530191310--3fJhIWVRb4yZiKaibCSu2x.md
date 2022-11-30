@@ -1,0 +1,6 @@
+# REPORT: MINMATAR AMBASSADOR KEITAN YUN CONNECTED TO YULAI INCIDENT, SHOW OF FORCE WAS A THREAT TO CONCORD
+Published on 2008-05-30T19:13:10 at https://universe.eveonline.com/new-eden-news/report-minmatar-ambassador-keitan-yun-connected-to-yulai-incident-show-of-force-was-a-threat-to-concord
+
+Illuin – Scope News has obtained information indicating that the armada which appeared in Yulai is connected to disgraced Minmatar Republic Ambassador Keitan Yun. The anonymous source revealed that the timing of the fleet’s appearance coincided almost directly with an alleged threat issued by Mr. Yun directly to CONCORD. The sudden show of force, which included Thukker Tribe warships, was apparently intended to back his claims. However, the precise nature of the threat itself is unknown, nor is it clear on whose behalf it was made. 
+
+Mr. Yun, appointed to the post of Minmatar Ambassador to the CONCORD Assembly by Prime Minister Karin Midular last month, caused an uproar with his vocal confrontation with his Amarrian counterpart during his inaugural address. CONCORD Chief of Staff Kivas Odaka would only confirm that Mr. Yun has become a "person of interest" in the ongoing investigation of today’s events, and that his present whereabouts are unknown.

@@ -1,0 +1,6 @@
+# Ecliptical slain - Articio Kor-Azor “not in mourning”
+Published on 2004-02-25T18:27:40 at https://universe.eveonline.com/new-eden-news/ecliptical-slain-articio-kor-azor-not-in-mourning
+
+Amarr champion Ecliptical was slain by an unnamed assailant of Omega Corp, this morning at 7:20 GMT in the 7R5-7R system, deep in the Stain region. While reports of the killing are conflicting, it is evident that Ecliptical's escape pod was breached, prompting his clone to be initiated. Emperor Doriam Kor-Azor was not available for comment, but his son Articio is claimed to have said “Well I’m not in mourning. This man fought for my father, true, but who in their right mind wouldn’t? Should we celebrate every man who does his duty?” Articio went on slandering this proclaimed hero of Amarr and made lewd remarks about Amarr heirs Uriam Kador and Catiz-Tash Murkon, unfit for print.   
+  
+Articio is thought to be trying to divert attention from the imminent handover of the enslaved Crielere scientists to a Gallentean delegation, following a secret deal brokered by Gallentean president Foiritan. Ecliptical’s fresh clone was unavailable for comment and is believed to be gathering his thoughts, and quite possibly, plotting revenge.

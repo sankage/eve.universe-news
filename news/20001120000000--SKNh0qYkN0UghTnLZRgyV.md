@@ -1,0 +1,14 @@
+# The Peralles Incident
+Published on 2000-11-20T00:00:00 at https://universe.eveonline.com/new-eden-news/the-peralles-incident
+
+![The Peralles Incident](https://web.ccpgamescdn.com/communityassets/img/chronicles/chronicleImage/pera.jpg#left)
+
+---
+
+The theory and technology behind jump gates opened up a whole new era in the history of mankind and is readily accepted as being one of the most important discoveries of all times. Jump gates have now been in usage for centuries and new versions appear regularly that make them more sophisticated and safe. Even if the functions of jump gates are well known from a theoretical point of view, there still remain a lot of unanswered questions about the fundamentals of dimensional inter-connections. Naturally, many theories exist on the subject, but none are comprehensive enough to fully explain how the universe is divided into many dimensions and the connections between them, some also touch upon the subject of hyperspace, an alternative plain in another dimension. About the only statement these theories agree upon is that these issues are definitely not as simple as they seem on the surface.
+
+Every now and then some unexplained events have occurred when a ship jumps through a jump gate, but these have been so few and far between that they’ve always been put down to accidents or faulty data. In recent months strange incidents in the barren and unpopulated systems near the hub of the known world have had people starting to question the reliability of jump gates and wonder whether humans opened Pandora’s box when they started using them.
+
+What finally caught the attention of the media and, hence, the public, was the disappearance of the Gallentean Senator Hubert Caissor along with his family and his fortune in the ship Peralles en route to a new post as ambassador to the Amarrians. The Peralles entered a jump gate in the Dom-Aphis system between Amarr and Gallente space. Its destination was the jump gate in the Iderion system close by, but it never re-appeared there. What makes this even more of a puzzle is that the control station at Iderion jump gate received notification that a ship was incoming, showing all the right signs, yet no ship exited the jump gate. What is more, this notification is received at the exact same time every day, with the same result: no ship appearing even if all the signs indicate that a ship is about to come through the jump gate.
+
+Since the Peralles incident stories of other similar incidents have surfaced, all within the same region. These stories, some no more than unsubstantiated rumors, all tell tales of disappearing ships, strange disturbances while jumping, ghostly echoes and images and unsettling time shifts in the vicinity of jump gates. The empires have started an inquiry into the matter, but still no rational explanation of the phenomenon has been offered.

@@ -1,0 +1,4 @@
+# Salvador Sarpati
+Published on  at https://universe.eveonline.com/new-eden-news/salvador-sarpati
+
+The evil genius, as some would say, at the top of the Serpentis organization, Virge Salvador Sarpati founded the corporation and built it into the drugs empire of today with absolute devotion. Preferring to be known as ‘V. Salvador Sarpati’, the leader of Serpentis is sometimes referred to as ‘The Snake’, though never in his hearing and only by enemies and the most daring of his servants. Truth be told, while he keeps up an appearance of disliking the nickname, Sarpati takes a rather perverse pleasure in it. A near-obsessional preoccupation with long-term schemes, mysterious research projects and his ever-present hatred of the Gallente Federation are key to understanding Sarpati. Nevertheless, the health and prosperity of the Serpentis Corporation remains his chief concern, all else being a means to an end for Salvador Sarpati.

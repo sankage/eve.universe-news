@@ -1,0 +1,10 @@
+# Caldari Business Tribunal calls in Navy as Lai Dai seizes SuVee Food Shipments
+Published on 2008-10-28T09:49:49 at https://universe.eveonline.com/new-eden-news/caldari-business-tribunal-calls-in-navy-as-lai-dai-seizes-suvee-food-shipments
+
+Maurasi - Lai Dai Protection Service (LDPS) troops yesterday seized shipments intended for Sukuuvestaa Corporation, prompting the Caldari Business Tribunal (CBT) to request Caldari Navy assistance through the exercise of emergency powers.
+
+Reports indicate that last night up to nine Nugoeihuvi-chartered freighters carrying cargo consigned to SuVee were intercepted, boarded and seized by LDPS troop-carriers accompanied by a number of light cruisers. The Caldari Navy responded to hails for assistance and the situation is understood to have been defused peacefully, with LDPS forces releasing the freighters after diverting them to systems containing CBT stations. The Navy then escorted the freighters into dock at the relevant CBT facilities.
+
+Lai Dai Corporation CEO Alakoni Ishanoya has released a statement declaring the actions of the LDPS in accordance with Caldari commerical law and aimed at "supplementing the ongoing CBT investigation with cold, hard evidence of the distortion of supply chains by certain corporations within the State." The CBT's Head of Intelligence, Oksuken Seriya, responded that "the intervention of the Lai Dai security forces was uncalled for, unwelcome and totally unnecessary. We have requested that the Caldari Navy more closely monitor traffic from these corporations while our investigation is underway."
+
+Meanwhile, the Caldari markets have expressed extreme displeasure with all megacorporations involved, with their recent and steady decline in share prices giving way to a sharp drop. Soldiers enlisted in the State Protectorate are reportedly giving vent to their views by using photographs of the three CEOs on their firing ranges. In contrast, the Chief Executive Panel has remained silent, apparently preferring to concentrate on the Reform Guidance Board it recently established.

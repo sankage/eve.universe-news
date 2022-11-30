@@ -1,0 +1,31 @@
+# Border Zone Defence Matrix
+Published on  at https://universe.eveonline.com/new-eden-news/border-zone-defence-matrix
+
+The **Border Zone Defence Matrix** is the collective name for the early warning and fast response defense network deployed at all gateway crossings across the [Gallente](4bufc5OaK80rlo20Pez6gK) and [Caldari](7unGNsrMFwIWXMMbrM2jfy) Border Zone area. The Gallente component of the BZDM is known as the 'Tripwire', and it was its sabotage by Caldari infiltrators that resulted in the Federation's disastrous YC110 defeat that ended with the loss of [Caldari Prime](1yEhptNaSoG42YRSay711i) to State occupation. Prior to the outbreak of the Empyrean War, both the Gallente and Caldari denied the existence of the defense network being in place, particularly due to the legal ambiguities and dubious questions that arise under [CONCORD](5DPzMesjfj3XKshPWBUPWt) law.
+
+Overview
+--------
+
+Towards the end of the [Gallente-Caldari War](1ehjby0lOpdwMJf9CprPtV), the Federation's victory at the [Battle of Iyen-Oursta](57mej5UVTU6kRfqaSdmRBv) put the Gallente closer than ever on the road to New Caldari. However, the sheer human cost of the battle caused plenty of war weariness, even for the combative Caldari. Though less than three lightyears from Iyen-Oursta to New Caldari, the Federation no longer had the momentum to press forward. The Gallente military command was also forced to take into account the impenetrable wall the Caldari had established so close to [Luminaire](1tM3Nx7GG1CbWtq6PcKMwj), today known as the Caldari Border Zone. While the State never had the logistical capabilities to strike Luminaire from this sector, the Federation was fully aware that attempting to push onward from Iyen-Oursta with the little momentum it had left may just grant the opening the Caldari needed to launch a counteroffensive.
+
+A stalemate ensued, and peace was established not long after. The sector of space between Luminaire and New Caldari was marked as the Border Zone between the two nations. Though each side is marked on the star-map as individual constellations in two separate regions, they are located in the same physical area of space. Each Border Zone constellation strings deep into the heart of the opposing nation, which eventually precipitated the creation of the Defence Matrix by either side through its strategic location.
+
+Composition
+-----------
+
+The primary early warning component uses small, stealthy scout buoys, which are launched from deep space outposts into the [stargates](416pCzXGIwn2Tt7feZYSpk) and travel to their assigned locations, communicating with the launching outpost using fluid router technology. Telemetry from these outposts is linked directly to the naval defense command networks of the launching nation. This allows each side to monitor enemy activities and movements within the opposing Border Zone constellation, which is essential for being preemptively aware of any impending invasion or incursion. In addition, the penetrating nature of each constellation makes it possible for either nation to monitor both civilian and military traffic in and around nearby enemy systems. From the Gallente Border Zone, the Federation watches over activities in neighboring constellations, while the State does the same from their side of the border. This excludes the highly secure home systems such as Luminaire or New Caldari, that, despite being close to the respective enemy Border Zones, are perceived as too well-guarded to risk any international incident a probing may spark.
+
+These details were mostly undisclosed to the general public up until YC110, where the Federal government was forced to placate the questioning masses by revealing details on the Tripwire, its failure, and how exactly a massive enemy fleet was able to invade the heart of the Federation. When questioned, the [Chief Executive Panel](5CmaMqj1ZsFw2j4C12JpmV) did not directly answer the existence of their own system beyond curtly stating that "all necessary methods are used to ensure the protection of the State".
+
+Besides the Defence Matrix, each Border Zone has had its own conventional defensive composition that falls within the general public's awareness. For instance, the Caldari Border Zone is heavily militarized, with a large naval presence. CONCORD maintain overwatch here, more so than before recent hostilities, especially since the disclosure of the Defence Matrix. It is particularly important for trade between the bustling Crux and Kimotoro constellations, with [Sukuuvestaa](1qDZvg69txboJlARXk4vKB) and [Hyasyoda](WisddAsk7hie3SUcwiNwa) being the main megacorporations with operations here. Its extremely high military presence has been reflected in the constellation's CONCORD-granted security level of mostly 1.0 and 0.9.
+
+Meanwhile, the Gallente Border Zone has suffered from the [Federation Navy](y2DAUzy3B6kc7fBww7nl1) gradually withdrawing its forces since the end of the first Gallente-Caldari War, especially with the severe budget cuts it suffered from during this time period. For the most past, the Federation has relied on mostly automated surveillance and early warning systems that make up the Tripwire, leaving a small Navy task force in supervision. This is in direct contrast with the Caldari combining their own versions of these systems with a considerable naval presence. Instead, [Federation Customs](2LZwH7MsRSRhlMHNegrgGx) has taken over the majority of security and border protection duties, of which it has struggled with due to historically inadequate funding. Though the constellation is an important trade link between Kimotoro and Sinq Laison, Customs has been somewhat ineffectual against smuggling, illegal immigration, and other malignant activities such as cross-border piracy. As a result, CONCORD has rated the Gallente Border Zone at a lower security level than its Caldari counterpart, to the point that two systems in the constellation are classified as lowsec.
+
+See Also
+--------
+
+-   [Gallente-Caldari War](1ehjby0lOpdwMJf9CprPtV)
+-   [Gallente Federation](4bufc5OaK80rlo20Pez6gK)
+-   [Caldari State](7unGNsrMFwIWXMMbrM2jfy)
+-   [CONCORD](5DPzMesjfj3XKshPWBUPWt)
+-   [Chronicle: The Gallente-Caldari War: The War Drones On](ta3q2yUTdSA58tHpFmlQq)

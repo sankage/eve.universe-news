@@ -1,0 +1,4 @@
+# Report: Intaki Station in Syndicate Struck by Major Radiological Pulse
+Published on 2009-03-10T11:18:36 at https://universe.eveonline.com/new-eden-news/report-intaki-station-in-syndicate-struck-by-major-radiological-pulse
+
+SYSTEM 35-RK9 - The Intaki Syndicate Bureau station in the 35-RK9 system has been struck by a powerful radiological pulse--the third confirmed event of its kind today. Impacting at 16 AU's from its sun, the timing of the blast coincides with other reported main-sequence anomalies. There are no reported casualties, but Syndicate spokesman Rhin Dovaille stated that the pulse was powerful enough to temporarily knock out electrical grids. Shielding systems were also brought down nearly to zero but held. He added that their distance from the local sun was what likely spared their lives.

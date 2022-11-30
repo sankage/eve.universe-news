@@ -1,0 +1,10 @@
+# Hyasyoda Walks Out On Negotiations With Zainou
+Published on 2009-02-09T16:11:50 at https://universe.eveonline.com/new-eden-news/hyasyoda-walks-out-on-negotiations-with-zainou
+
+Isseras - Zainou negotiators were shocked today when Hyasyoda representatives, citing worries about Zainou's long term viability, walked out on what was intended to be a routine supply contract renewal between the megacorp conglomerate and the well-known biotech firm. The market registered its disappointment by closing with Zainou stock having taken a measurable slide.
+
+The negotiations were expected to be a nonevent, considering the longstanding relationship between Hyasyoda and Zainou parent Ishukone. However, this morning, Hyasyoda negotiators told Zainou's representatives that "recent events" had made them question whether Zainou would be "a reliable partner for Hyasyoda in the future," and demanded a number of concessions. When the Zainou delegation balked, asking for time to review the changes, Hyasyoda representatives excused themselves and left the station.
+
+Zainou spokesman Raultalainen Aiko told reporters today that Zainou is committed to finding a compromise with Hyasyoda. "Zainou remains confident that a deal will be signed before the end of the quarter," he explained. "Setbacks, especially in today's volatile business environment, should be expected; while we are disappointed, we have no reason to think this is a lasting impasse."
+
+Some analysts, however, are not so upbeat toward the situation. Asha Inaken, a contributing editor at _The Kimotoro Report_ , pointed out that "if Zainou is having trouble with a close ally like Hyasyoda, what does that say about their other contracts? They need to deal with this and fast; the longer they let it hang over their heads, the worse this is going to look." Others have expressed bafflement at what "recent events" Hyasyoda was referring to, as Zainou has remained a relatively strong part of Ishukone's portfolio regardless of the larger Caldari economic picture.

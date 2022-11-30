@@ -1,0 +1,10 @@
+# Increasing Numbers Join Great Wildlands Pilgrimage
+Published on 2008-08-08T04:41:11 at https://universe.eveonline.com/new-eden-news/increasing-numbers-join-great-wildlands-pilgrimage
+
+Two months after the appearance of the Elder Fleet in empire space, a growing number of Matari are heading out into The Great Wildlands to try and locate them. While some go in search of answers, many are making the journey in the hope of simply joining them.
+
+What began as a small trickle has now turned into a steady flow of ships embarking on what most are calling a "pilgrimage". Fuelled by various rumours on GalNet message boards, many of these tribespeople are risking life and limb to take part in what could be one of the most hazardous journeys in New Eden. "I've had all sorts of folk down here buying ships", remarked Hanstell Grigokska, a trader in Orien. "Some of these guys don't even know what they need for such a journey; I am constantly having to remind them about provisions, medicine, and more worryingly, to actually fit some defences onto their ships. The Great Wildlands didn't get its name by accident."
+
+Fanjik Odellant is one of the pilgrims. Along with almost two hundred of his clan, part of the Brutor Tribe, he is busy fitting out an ancient Wreathe class industrial ship. "Our clan has pooled all our resources in order to buy this ship and provisions. My cousin, Retstan, spent almost twenty years working for Core Complexion Inc. as a navigator on this kind of vessel, so I think we'll be in safe hands. We're looking forward to finding the Elders and offering our services to them. The victories of The Elders in Yulai and the Amarr Empire are an inspiration to us all."
+
+Not everyone was as thrilled by the prospect of this long pilgrimage. "If I am honest, I am having second thoughts about making the trip, especially as I have two small children," was the viewpoint of Aniget Odellant. "I have heard some terrible stories about what awaits unprepared travellers, especially once we leave the borders of the Republic. I have to travel though; I can't really stay here and watch the rest of my family leave without me."

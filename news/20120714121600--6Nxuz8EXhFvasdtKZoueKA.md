@@ -1,0 +1,6 @@
+# Alliance Tournament X studio weekends begin today
+Published on 2012-07-14T12:16:00 at https://universe.eveonline.com/new-eden-news/alliance-tournament-x-studio-weekends-begin-today
+
+With CCP Soundwave returning triumphant from the 'Feet of Fire' dance tournament we are ready for the first weekend of Alliance Tournament action from our brand new studio. Tune in to catch all the action on [EVE TV](http://community.eveonline.com/en/tournament/evetv) from 15:00 UTC today and keep an eye on the forums for our '[Predict the Winner](https://forums.eveonline.com/default.aspx?g=posts&t=132524&find=unread)' competitions to win PLEX as well as Logitech and EON goodies. Our commentators have arrived safely and will bring you analysis from the studio throughout the day.
+
+CCP Alice and Loxy have been working to provide you with the most stunning studio to date and we really hope you like it. Our friends at the Interstellar Correspondents will be bringing you up to date match reports and statistics so check out [their page](http://at.eve-ic.net/10/) for the latest news. The full schedule of matches for this weekend can be found on our [Alliance Tournament page](http://community.eveonline.com/en/tournament/schedule/groups).

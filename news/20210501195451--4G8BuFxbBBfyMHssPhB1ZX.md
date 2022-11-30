@@ -1,0 +1,8 @@
+# BREAKING: Amarr Dreadnoughts Fire on Floseswin IV with Siege Lasers
+Published on 2021-05-01T19:54:51 at https://universe.eveonline.com/new-eden-news/breaking-amarr-dreadnoughts-fire-on-floseswin-iv-with-siege-lasers
+
+Floseswin, Metropolis - Reports from the war-torn Floseswin system state that multiple Revelation-class dreadnoughts have made orbit around Floseswin IV and have opened fire on surface targets with siege lasers. This assault on a Minmatar-controlled and -populated planet is particularly alarming for its potential to push the two empires into open warfare across New Eden.
+
+Floseswin system, and the fourth planet in particular, has been a flashpoint in the Amarr-Minmatar militia warzone for nearly 18 months since the Amarr Royal House of Sarum launched a major offensive aimed at "reclaiming the planet and population" for the Amarr Empire. While fortunes have ebbed and flowed for both sides in the ensuing conflict, the Minmatar armed forces managed to retake and hold the major cities and secure most territories on the planet as system control fluctuated back and forth between capsuleer militias.
+
+With the system now under Amarr militia space control, despite occasional strikes by Minmatar militia forces seizing temporary system control, there has been much speculation that a renewed ground offensive is being prepared by Sarum forces building up bases in Floseswin and nearby long-held systems. Reports are unclear as to the identity of the attacking forces but large numbers of Amarr Navy and Republic Fleet vessels are known to be in the area, raising fears of invasion and counter-invasion.

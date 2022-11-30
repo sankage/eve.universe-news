@@ -1,0 +1,6 @@
+# “The Great Defense of Crielere” - Guristas Raid on Crielere Foiled
+Published on 2004-02-04T22:35:28 at https://universe.eveonline.com/new-eden-news/the-great-defense-of-crielere-guristas-raid-on-crielere-foiled
+
+A multiracial force of hundreds of pilots intercepted Guristas warships bent on storming the Crielere research labs and successfully drove them out of the Crielere system. Crielere co-founder Henric Touvolle applauded the efforts of this brave group, whose losses were considerable. Escape pods could be seen glittering amidst the debris and ravaged hulls of frigates, cruisers and battleships. Scavengers collected weapons and modules lost by the merciless Guristas as their forces slowly dissolved.   
+  
+This military success is considered somewhat an embarrassment for the Caldari and Gallente fleets, as they had just abandoned the system a few hours before the combat began. The skeleton crew of Crielere was certain that these would be their last moments when Guristas battleships started pounding their defenses. Cries of joy and elation could be heard broadcast from the compound once it became obvious that the pirates had given up and began retreating. A ray of light seems to have shone through the darkness that has until now seemed to engulf this visionary project.

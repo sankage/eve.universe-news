@@ -1,0 +1,8 @@
+# UPDATE: LOCAL BROADCAST AUDIO CONFIRMS NYX COLLISION WAS DELIBERATE
+Published on 2008-05-15T00:00:00 at https://universe.eveonline.com/new-eden-news/update-local-broadcast-audio-confirms-nyx-collision-was-deliberate
+
+MALKALEN - Logs from the Local subspace channel in the Malkalen System obtained by the media have confirmed that the Nyx supercarrier piloted by Admiral Alexander Noir of the Federation Navy was deliberately piloted into Ishukone Headquarters station. This attack occurred during an Economic Summit hosted by Ishukone CEO Otro Gariushi and included representatives from the Federation government. Partial transcripts of the local reveal Admiral Noir's final words, just before impact: 
+
+"I have an obligation to my beloved Federation to settle accounts with this hateful race, these cursed Caldarians. For my entire life, I have mourned for Hueromont, wishing, praying, willing for the day when I could strike back on behalf of those souls who perished. Fate has bestowed upon me this grand opportunity, this great day, to take vengeance for all those who gave their lives for the Federation, the true guardian of our precious Gallentean race . . . may you rest in peace now, brave souls of Hueromont, and you, kindred spirits of Nouvelle Rouvenor, knowing that I will take back what was stolen from you . . . Curse you, Caldari . . . may I take as many of you with me that I can!" 
+
+The Federation has not issued a statement as of this time. Search and rescue efforts are underway to reach survivors onboard, where numerous fires are still burning throughout. The scale of damage to the station is catastrophic, with the death count estimated to reach into the hundreds of thousands.

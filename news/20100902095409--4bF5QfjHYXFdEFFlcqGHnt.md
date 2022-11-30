@@ -1,0 +1,12 @@
+# Sarum Symphony a glorious triumph
+Published on 2010-09-02T09:54:09 at https://universe.eveonline.com/new-eden-news/sarum-symphony-a-glorious-triumph
+
+![](http://www.eve-mercury.net/images/mercurybanner.png)  
+  
+Mekhios - From the hushed and pensive opening notes to the stirring triumphal finale, Khitian Maritak's choral Sarum Symphony held listeners entranced for the entirety of its three-hour length. "I wanted to express [the Empress'] rise to power as the journey of her lifetime, to make the audience _feel_ her experience," the honored composer stated later in an open interview. Home viewers may not have received quite as powerful an experience as the attendees, but the program has been recorded to produce the closest possible facsimile and will be available next month for purchase.
+
+Featuring the vocal talents of soloists Ameyn Jural and Louwi Kil, the Symphony presented an immersive experience incorporating subtle lighting to enhance moods and utilizing to their fullest extent the unusual acoustical properties of St Nhyron's Basilica. The extensive twelfth movement, expressing the climactic battle above Mekhios, has already been called a "marvel" of precision composition, with singers representing both the Sarum fleet and the Minmatar Elder fleet passing around and amongst the audience in a recreation of the chaos and unpredictability of the fight, and culminating with the Elder fleet singers faltering and scattering from the Sarum singers' concentrated sound. Members of the audience flinched from the blinding golden light which was projected from behind soloist Kil, filling the Grand Nave with radiance recalling the Empress's finishing blow to the Elder fleet titan.
+
+Impressions from the audience have ranged from "moving" to "breathtaking." Privy Council member Arem Mecshilad enthused, "I have never heard -- _experienced_ \-- something so powerful. The five minutes of total darkness with the single soloist [Jural] representing Jamyl's lost years was especially poignant." No reaction has yet been issued by the Empress, though she and her retinue were in attendance in full formal regalia.
+
+Composer Maritak appeared unconcerned by the lack of comment. "The Symphony was written _of_ her, yes, but not _for_ her. She was there, she does not need to experience it the way her people do." Added Maritak, "this is the story of a remarkable woman who has had the Lord's hand upon her shoulder, and we must all remember that."

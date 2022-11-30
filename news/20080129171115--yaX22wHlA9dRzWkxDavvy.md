@@ -1,0 +1,18 @@
+# Rags to Riches
+Published on 2008-01-29T17:11:15 at https://universe.eveonline.com/new-eden-news/rags-to-riches
+
+**JITA** \- There is a persistent rumor circulating amongst the traders of the galaxy that a savvy trader could move to a market hub and make unbelievable sums of money from nearly nothing, in as little as one month. One enterprising capsuleer has set out to test this theory. 
+
+Fresh capsuleer graduate Bouncer Ricdic has taken his 5,000 ISK graduation gift from the School of Applied Knowledge, and challenged himself to turn it into 1 billion ISK in the space of one month. The reporters of the Interstellar Correspondents have gone out to seek an interview with this extraordinary individual, and we have returned with a profile of this careful daily trader. 
+
+Ricdic says that he can complete most of his trading in one to three hour segments each day. He doesn't rely on having huge amounts of time, or always staring at the market for rare deals. When asked what his favorite trading commodities were, he says he doesn't want to give too much information away to the public. "The key however is to diversify," says Ricdic, "I buy anything that I can resell at a decent markup." He finds his self-imposed limitation of staying within the Jita system challenging, but not too difficult, and it does have its benefits. 
+
+"[The turnover rate] is actually incredibly fast on some items." Ricdic uses turnover to ensure he can keep his money from being stuck in long term sales. How long is too long to have your money tied up? Ricdic has this advice: "Due to the large amounts of competition in Jita, generally if your goods haven’t sold within about three to four hours they will need their price modified... But being in Jita you usually have a good chance of selling most of your stocks within one to two hours." 
+
+According to Ricdic, his biggest challenge to date has been maintaining his impressive cash flow as the amount of credits he invests increases. He advises that as your wallet amount grows, it becomes less a question of overall profit margin, and more a question of value per unit. "Turning a 40 thousand per item profit now is quite sufficient but when dealing with 500m of capital you will need a lot more orders on hand to continue increasing your ISK..." Ricdic says this focus on margin per unit keeps him positive in the face of the massive size of the market. "Having to update 500 buy orders [every] three to six hours would be enough to make anyone’s hair fall out." 
+
+We asked Ricdic what effect he thinks this, his latest project, will have on the popularity of the Eve Bank, which he manages as a member of the board of directors. "EBANK already had 650 clients before this project begun. I haven’t directly linked the two as I had no real reason to think it worthwhile. EBANK itself is becoming a name people know. Market awareness is the hardest part of a project such as EBANK and we have found simple word of mouth by clients and their friends sufficient to do this." 
+
+We also asked about what improvements Ricdic might make to the market if it was his to control. He mostly felt that transaction fees and taxes were too high, and he found the standard capsule integrated market interface a little clumsy. He also found that the auto-refresh feature which downloads new market transaction data after a trade sometimes caused the interface to stop responding, and the fact that it doesn't distinguish clearly between corporate orders and personal ones was something he would like to see addressed. 
+
+The Interstellar Correspondents would like to thank Bouncer Ricdic for taking the time to respond to our questions, and wish him the best of luck in his ventures.

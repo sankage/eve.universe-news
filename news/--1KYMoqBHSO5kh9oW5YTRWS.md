@@ -1,0 +1,36 @@
+# Assault Frigates
+Published on  at https://universe.eveonline.com/new-eden-news/assault-frigates
+
+**Assault Frigates** are an advanced class of combat [frigate](6FJmBYuBTwDdtiiH8kIHsA) designed around firepower and survivability. They utilize redundant systems and an reinforced alloys to improve their survivability, making them capable fighters in the small hull arena. Popular amongst [capsuleers](15umOALoFBZxVS2oaggvJQ), they are hands down some of the hardest hitting frigates to be found.
+
+
+###History
+Military contractors have always endeavored to create the finest in direct combat vessels, and the frigate hull types have been no different. For many centuries, frigates remained relatively limited in just how much punishment they could survive or deliver without sacrificing critical levels of effectiveness in either area. Most popular designs painstakingly struck a delicate balance between the two, which while effective, left the dream of a hard hitting 'assault frigate' out of reach.
+
+Upon the discovery of practical morphite applications, the applications it allowed became immediately clear to combat frigate designers. Set upon with vigor, the newly possible Assault Frigate was to be the direct combat answer to the fast-attack Interceptor. Early on, the Assault Frigate was designed around the [hydrostatic capsule](2klMsyfd5quK05XnGL9wNB) variants of existing frigates. This saved valuable development time that would otherwise be spent on making a ground-up design, and allowed for higher standards of operation that could not be achieved by a less reactive standard crew complement.
+
+The Assault Frigate's core design philosophy beyond the application of morphite was redundancy. Assault Frigates were not just expected to survive withering punishment from much larger opponents; they were expected to thrive despite it. The end result of development was a class of vessels that could not only stand toe to toe with enemies twice their weight class and win, but do so despite suffering otherwise crippling damage.
+
+Assault Frigates found their popular role among the recon forces of empire navies. A smaller and more efficient fighting unit is extremely valuable in these circles, and Assault Frigates fit that description perfectly. Often sent in as a strike wing for special operations, a small squadron of Assault Frigates can do the work of a cruiser detachment faster and quietly. Where Assault Frigates are found, it is safe to assume the relevant power is serious about seeing their objectives through.
+
+###Technology
+While Assault Frigates are comparatively unremarkable with regards to new technology, they are perhaps the most obvious examples of what morphite alone can do to a starship design. Combined with the focus on redundancy and resilience, Assault Frigates end up being remarkably powerful craft. To the enemy, an Assault Frigate can be nearly impossible to neutralize without destroying it completely.
+
+Morphite additives are applied to significant portions of the ship including the structure, armor, power systems, and warp core casing. Larger morphite enhanced energy conduits allow for more power to be directed towards weapon systems, greatly improving the firepower of the Assault Frigate. The effects of the additives to defensive systems such as energy shielding and armor plating introduce significantly improved resistances to certain types of damage. Developments in warp core shielding borrowed from Interceptor designs also provide Assault Ships with a special effectiveness in using micro warp drives as a primary combat propulsion module, though less so than their smaller cousins.
+
+Beyond simple reinforcement, redundancy is key to the Assault Frigate's resilience. Individual ship systems, no matter how non-essential, are required to have backups in the case of failure. More often than not, this redundancy takes the form of two smaller half-sized systems linked together, so if one fails the system still operates, albeit at halved efficiency. In other cases such as power cabling and life support, full backups are installed. Replacement parts are kept in greater supply aboard Assault Frigates than on equivalently sized ships, with hot-swapping of damaged parts available for many critical systems. All of this takes up significant portions of internal space, most of which was formerly dedicated to crew comforts such as dining and private showering areas.
+
+It is said that the entire purpose of the Assault Frigate is to enshrine the weapons systems, and such statements are not far from the truth. All the resilience and redundancy of the ship is designed for the sole purpose of keeping the weapons working whether they be missiles, drones, or turrets. The entire purpose of an Assault Frigate is to destroy the target as quickly as possible for a ship of its size, and to that end the weapons of Assault Frigates are understandably enhanced to remarkable degrees. Improvements to range, application, and effectiveness of the weapons are made across the board in almost all cases using the same variety of redundancy and reinforcement applied to other systems. 
+
+With targeting and flight controls given over completely to the capsule pilot, lighting quick responses to changing environment and targeting data allow for the weapons to be applied in precisely the right place at precisely the right time. Without the capsule, most of the efficiency of the improved weapons is nullified by sub-optimal targeting and navigation. For this reason, the ship is explicitly designed to be piloted by a capsule pilot, though it is still possible to operate one without.
+
+Perhaps most notable is the intimidating use of atmospheric venting. Fires are a common and lethal danger aboard starships, and the only sure way to eliminate them almost completely is to provide no oxygen to burn in. In the case of Assault Frigates, entire sections of ship are capable of automatically depressurizing in the event of fire, which necessitate the use of exo-suits for all crew members. Again, the use of the hydrostatic capsule's independent life support with all the allow the Assault Frigate to continue operating for a very limited time even without a crew. 
+
+### Crews
+Assault Frigates unsurprisingly require less crew than that of their less advanced counterparts. Anywhere from two to five crew members are required on the typical capsule fitted variant. Due to the Assault Frigate's near complete reliance on the hydrostatic capsule to fill its intended role, it can require more than double that to operate one without a capsule. Assault Frigate crews are expected to have intimate knowledge of battlefield repair techniques, and often continuously wear uncomfortable exo-suits with masks so as to continue their work despite possible loss of atmosphere.
+
+Life aboard an Assault Frigate is comparable to life aboard a [destroyer](1ZGRFdhUUSkZE3cebI0Air), with cramped quarters and shared beds offering little comfort.  Assault Frigates are military vessels through and through, designed for specific missions in mind rather than open ended patrols. To that end, there is a lower maximum deployment time for these frigates compared to others. Crews for Assault Frigates are typically drawn from experienced destroyer crew pools.
+
+
+### See Also
+* [Frigates](6FJmBYuBTwDdtiiH8kIHsA)
